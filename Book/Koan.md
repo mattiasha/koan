@@ -1,3 +1,19 @@
+“Är det vackert?”
+
+Trädgårdsmästar-robot Jojin, version EK-327 bugade i sina slitna kläder samtidigt som han pekade på en liten stendamm, där templets å rann genom en stenbytta, precis bredvid mossa och gröna bambuväxter. 
+
+Munken, Ichirai, ignorerade Jojin. Istället lyfte han stressat sin munkklädsel, under hade han ett par jeans och ett par sneakers. Han rotade i sina fickor och fick fram en handfull med mynt innan han fortsatte nerför templets grusstig, förbi statyer och en ??? tills han kom fram till en gul taxi som väntade på honom. En dörr stod öppen och inifrån taxin hördes dunkande K-pop. Munken höll upp sin munkklädsel och hoppade in i taxin. 
+
+När taxin försvann iväg längs skogsstigen lyfte Jojin försiktigt sitt huvud från sin bugning. Länge stod han tyst och stirrade efter taxin, såg den försvinna bort nerför skogsbacken innan han plockade upp en liten trädgårdssax ur sin ficka.
+
+Sedan gick han över templets mossa. Kropp och ansikte som en 75-årig gammal man, hans rörelser programmerade att efterlikna denna ålder, även om hans inte stålskelett bara var två år gammalt. Han stod bugad men hans sinne lade märke till varje detalj omkring honom. Löven som raspade mot stenen. Det gamla trät som knarrade i templet. Hur vinden fick löv att blåsa över den gråa stenen precis bredvid tempelterassen. Och för varje detalj som nådde hans sinne, ställde han endast en fråga, “Är det vackert?”
+
+Sakta började han klippa grenar från en bambubuske. 
+
+<u>**Fukinsei** – Skönhet uppstår genom obalans och variation snarare än perfekt symmetri.</u>
+
+
+
 Det var så otroligt vackert. 
 
 Som ett sagolandskap.
@@ -33,4 +49,36 @@ Hugo lade en hand på skylten. Den kändes robust. Tidlös. Konpuko-ji. Hugo log
 
 
  
+
+Det satt ett fyrtiotal munkar i meditationssalen. Alla i skräddarställning, händerna vilande i knät, halvt blundande. 
+
+Det var en tidlös syn. Även om Hugo inte var framme vid templet kunde han se rakt in i meditationssalen. Den var öppen på ena sidan, omgiven av en mossträdgård, en terass och grenar från lönnträd som hängde in över terassen. 
+
+Mitt ibland dem gick en sträng munk. Roshi. Hugo kände igen honom från videos online där han pratat om zens grunder. Nu gick gick han med en keisaku, en platt stav, framför sig. Han höll staven mellan två sina två handflator som var förda emot varandra. Varje steg han tog var strikt, kontrollerat. Blicken hård, fäst på väggen i den riktning han gick. 
+
+En av de mediterande munkarna förde samman sina handflator framför bröstkorgen, varpå Risho ställde sig bakom munken, höjde sin keisaku och slog munken mellan skulderbladen. Inte så det skadade, men bestämt. Munken tackade genom att lägga händerna mot sin mun och buga i den sittande ställningen.
+
+"Är det vackert?"
+
+Hugo ryckte till av det oväntade tilltalet. Bredvid honom stod nu en gammal man i slitna kläder. Mannen såg ut att vara över pensionsåldern och hade en anspråkslös aura. Som någon som ödmjukt tagit på sig att sköta templets trädgård nu när han var pensionär. En söt morfar. 
+
+Mannen pekade mot en liten vattenbrunn. Det såg som en mindre stenbassäng där vatten porlade ut från ett litet bamburör, och med en rundad slev precis bredvid. Ovanför satt en liten skylt där det stod "Jag är nöjd med det jag har". 
+
+"Mycket vackert", sade Hugo, och kunde inte låta bli att skratta åt det svagt absurda i situationen.
+
+Mannen förde samman sina händer på samma sätt som munkarna och förde de mot sin mun samtidigt som han bugade ett tack. Sedan vände han sig och gick, och försvann i ett snår av buskar lika snabbt som han dykt upp.
+
+Hugo småskrattade igen. 
+
+Bara i Japan.
+
+
+
+
+
+
+
+
+
+
 
