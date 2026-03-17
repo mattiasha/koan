@@ -4,7 +4,13 @@ Hugo rörde sig mot templet samtidigt som han såg munkarna avsluta sin meditati
 
 
 
+---
+
 **Datsuzoku** – "Verklig skönhet uppstår när man släpper regler och invanda sätt att tänka."
+
+-------
+
+
 
 Två minuter senare stod Hugo i ett av templets korridorer och väntade på att få komma in till Roshin. Det var både nervöst och spännande. Det var första gången han var i ett tempel för att faktiskt bli munk, och det kändes annorlunda. Längre ner i korridoren stod en stor klocka och en munk stod blickstilla bredvid, allvarlig, med en trästav, en shumoku i händerna. Hans allvarliga blick gjorde Hugo än mer nervös. Genom de tunna pappersväggarna kunde Hugo ana skuggor och dämpade röster, och hur trägolven knarrade när de rörde sig rummet. Snart skulle han vara den som satt därinne, och tanken gjorde att det rörde sig nervöst i magen. Han torkade sina svettiga handflator. Kände sig åter smutsig och svettig efter vandringen och försökte fokusera på omgivningen. Det hängde en tavla precis framför honom med ett kalligrafitecken han inte kände igen. Precis under, en vacker vad med exakt en blomma. Kanske det betydde något. 
 

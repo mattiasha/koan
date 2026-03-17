@@ -1,6 +1,8 @@
+-------
 
+**Fukinsei** – Skönhet uppstår genom obalans och variation snarare än perfekt symmetri.
 
-<u>**Fukinsei** – Skönhet uppstår genom obalans och variation snarare än perfekt symmetri.</u>
+-----
 
 
 
