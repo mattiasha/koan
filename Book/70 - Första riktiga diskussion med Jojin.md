@@ -1,67 +1,79 @@
-Efter meditationen började Hugo lägga märke till livet i templet på ett annat sätt. Inte som en enskild händelse, utan som något som pågick överallt samtidigt. Munkar som sopade gården i långa, rytmiska drag. Andra som sprang framåtböjda med trasor mot golvet, skurade träet med en precision som nästan såg koreograferad ut. Från köket steg ånga och ljudet av metall mot metall blandades med dämpade röster. Allt rörde sig, men utan stress, som om varje uppgift redan hade sin plats i tiden.
+Hugo kom ut från meditationssalen lite efter de andra. Stegen var långsammare, inte avsiktligt, utan som om kroppen inte riktigt hunnit ifatt det som just hänt. Luften utanför var svalare. Klarare. Men det hjälpte inte riktigt.
 
-Hugo stod en stund och bara såg på. Försökte förstå hur han själv passade in i det.
+Han stod kvar en stund vid tröskeln. De andra munkarna hade redan spridit ut sig över gården, gått vidare in i sina uppgifter utan att tveka. Några kastade snabba blickar mot honom, men ingen stannade.
 
-Smärtan i ryggen låg kvar som ett svagt eko, men den var inte längre lika skarp. Mer som en påminnelse.
+Smärtan i ryggen låg kvar, dov nu, men närvarande. Inte bara som en fysisk känsla, utan som något han inte kunde placera.
 
-Han tog några steg ut i trädgården.
+Han tog några steg framåt, utan tydlig riktning, bort från salen.
 
-Här var det tystare. Ljuden från templet fanns kvar, men på avstånd, dämpade av mossa och träd. Marken var mjuk under fötterna, täckt av ett tjockt lager grönt som nästan såg overkligt ut. Stenar låg placerade med en sådan exakthet att det kändes som att de alltid hade legat där.
+Trädgården bredde ut sig runt honom, men inte den del han först sett. Det här var närmare byggnaden, där trätrallen från meditationssalen mötte marken. Mossan var tunnare här, avbruten av fläckar där jorden syntes igenom. Några stenar låg snett, som om de en gång placerats med omsorg men sedan lämnats. Ett gammalt trästycke stack upp ur marken, sprucket och väderbitet.
 
-Och där, böjd över marken, var han.
+Det var fortfarande vackert.
 
-Jojin.
-
-Han satt på knä i mossan, med ansiktet nära marken, som om han studerade något mycket litet. I handen höll han ett smalt verktyg och rörde sig långsamt, metodiskt.
-
-Hugo stannade upp.
-
-Det var något med scenen som fick honom att andas lugnare.
-
-Jojin lyfte blicken, som om han redan visste att Hugo var där. De möttes med en kort blick, och sedan reste sig den gamle mannen långsamt upp. Han förde samman händerna framför bröstet och bugade.
+Men inte färdigt.
 
 "Är det vackert?"
 
-Hugo log svagt, nästan automatiskt. "Det är vackert."
+Hugo stängde ögonen en bråkdel av en sekund innan han vände sig om.
 
-Den här gången skrattade han inte.
+Jojin stod där.
 
-Jojin nickade, som om svaret betydde något, och pekade ner mot marken där han just arbetat. Hugo tog ett steg närmare och såg vad han höll på med. Små, nästan osynliga ojämnheter i mossan. Några mörkare fläckar, små fragment som brutit den jämna ytan.
+Han hade inte sett honom komma. Den gamle mannen bugade lätt, händerna samlade framför bröstet, och pekade mot den slitna delen av trädgården.
 
-"Vad gör du?" frågade Hugo.
+Hugo följde gesten, men svarade inte direkt. Han var inte riktigt på humör för det här.
 
-Jojin satte sig ner igen och visade med verktyget. "Tar bort det som stör färgen."
+"Det är… fint," sa han till slut, mer av artighet än övertygelse. "Men kanske lite… slitet."
 
-Hugo tittade ut över trädgården. Den bredde ut sig i alla riktningar, ett oändligt hav av grönt.
+Jojin nickade, som om svaret var precis vad han väntat på.
 
-"Gör du det… överallt?"
+"Vad kan förbättras?"
 
-"Överallt."
+Hugo tvekade. Han kastade en snabb blick bort mot gården där de andra munkarna redan var igång med sitt arbete. Han borde gå dit. Inte stå här.
 
-Det var inget i hans röst som antydde att det var orimligt.
+Men Jojin stod kvar.
 
-Jojin lutade sig ännu närmare marken och fortsatte sitt arbete, som om samtalet redan var avslutat. Hans rörelser var långsamma men exakta, varje liten justering gjord med samma omsorg.
+Väntade.
 
-Hugo stod kvar en stund och såg på. Försökte förstå vad han egentligen tittade på. Först såg han ingenting särskilt, bara mossa. Men ju längre han stod där, desto mer började skillnader framträda. Nyanser i grönt. Små skiftningar i ytan. Platser där något var… lite fel.
+Hugo suckade tyst, nästan ohörbart, och tittade tillbaka på platsen framför sig. Den här gången lite noggrannare. Han lät blicken röra sig över detaljerna. Stenarna. Mossan. Träet.
 
-Han pekade försiktigt mot en liten yta några decimeter bort. "Där… är den lite mörkare."
+"Den där," sa han och pekade mot en av stenarna. "Den känns… felplacerad. Lite för nära kanten."
 
-Jojin följde hans finger, nickade direkt, som om han själv redan sett det. Han flyttade sig dit, satte sig ner och började arbeta.
+Jojin följde hans finger och nickade direkt.
 
-Hugo kände hur något lättade i honom.
+"Och mossan där," fortsatte Hugo, nu mer fokuserad än han tänkt sig. "Den är ojämn. Det bryter av lite för mycket."
 
-Det var första gången sedan meditationen som han inte tänkte på slaget.
+Han stannade upp, överraskad över sig själv.
 
-"Blir det vackrare?" frågade han.
+Jojin böjde sig redan ner mot marken, som om varje ord var en instruktion att omsätta direkt.
 
-Jojin stannade upp, tittade upp på honom igen, med samma lugna blick.
+"Mer?" frågade han.
 
-"Det blir klarare."
+Hugo tvekade igen, men blicken hade redan börjat arbeta. Han tog ett steg fram, såg hur trästycket stack upp.
 
-Han återgick till arbetet.
+"Den där… kanske antingen bort helt, eller… mer integrerad. Nu känns den bara… kvarlämnad."
 
-Hugo stod kvar en stund till, men den här gången med en annan känsla. Inte som en besökare, utan som någon som just börjat se något han tidigare missat.
+Jojin nickade igen, djupt den här gången.
 
-När han till slut vände sig om och gick tillbaka mot templet, kastade han en sista blick över axeln. Jojin satt fortfarande kvar i mossan, helt uppslukad av sitt arbete, som om världen utanför inte existerade.
+Hugo märkte att något i honom hade skiftat. Han tänkte inte längre på slaget. Inte på Roshi. Bara på hur allt hängde ihop, eller inte gjorde det.
 
-Och för första gången sedan han kommit dit kändes det som att något, om än väldigt litet, hade fallit på plats.
+Sedan hörde han rörelser bakom sig.
+
+Munkarna.
+
+Arbetet hade börjat på riktigt nu.
+
+Han rätade på sig snabbt. "Förlåt, jag borde—"
+
+Han bugade lätt mot Jojin, mer hastigt än tidigare. "Jag måste gå."
+
+Jojin bugade tillbaka, lika djupt som alltid.
+
+"Arigato, Hugo-san."
+
+Hugo nickade och vände sig om, började gå tillbaka mot templet i snabbare steg.
+
+När han nådde trallen kastade han en snabb blick över axeln.
+
+Jojin hade redan satt sig ner i mossan.
+
+Och börjat arbeta.
