@@ -12,7 +12,7 @@ FILES=(
 	"60 - Första meditation.md"
 	"70 - Stressad men artig mot Jojin.md"
 	"80 - Tuffa livet i templet.md"
-	"90 - Filosofiskt med Jojin.md"
+	"90 - Börjar bli kompis med Jojin.md"
 	"100 - Andra doskusan.md"
 	"110 - Tröstas av Jojin.md"
 	"120 - Vänjer sig vid tempellivet.md"
