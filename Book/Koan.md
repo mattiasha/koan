@@ -8,13 +8,13 @@ När taxin försvann iväg längs skogsstigen lyfte Jojin försiktigt sitt huvud
 
 Sedan gick han över templets mossa. Kropp och ansikte som en 75-årig gammal man, hans rörelser programmerade att efterlikna denna ålder, även om hans inte stålskelett bara var två år gammalt. Han stod bugad men hans sinne lade märke till varje detalj omkring honom. Löven som raspade mot stenen. Det gamla trät som knarrade i templet. Hur vinden fick löv att blåsa över den gråa stenen precis bredvid tempelterassen. Och för varje detalj som nådde hans sinne, ställde han endast en fråga, “Är det vackert?”
 
-Sakta började han klippa grenar från en bambubuske. -------
+Sakta började han klippa grenar från en bambubuske. 
+
+
 
 **Fukinsei** – Skönhet uppstår genom obalans och variation snarare än perfekt symmetri.
 
 -----
-
-
 
 Det var så otroligt vackert. 
 
@@ -33,24 +33,6 @@ När han gav sig neråt igen passerade han en hjort som gick över stigen framf�
 *Hugo virade metalltråd runt några av grenarna som stack ut på ett sätt han inte gillade. Det var tuffare än han trott. Det var svårt att komma åt utan att samtidigt bryta några av de mindre grenarna, och ståltråden skar in i hans händer. Till slut fick han tråden på plats. Direkt efter lyfte han upp trädet en aning och klippte bort några otympliga rötter.*
 
 Hugo lade en hand på skylten. Den kändes robust. Tidlös. Konpuko-ji. Hugo log. Gick i riktning som skylten pekade.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
- 
 
 Det satt ett fyrtiotal munkar i meditationssalen. Alla i skräddarställning, händerna vilande i knät, halvt blundande. 
 
@@ -76,21 +58,7 @@ Hugo småskrattade igen.
 
 Bara i Japan.
 
-
-
-
-
-
-
-
-
-
-
-
-
 Hugo rörde sig mot templet samtidigt som han såg munkarna avsluta sin meditation. Väl framme vid tempelgården träffade han en av dem, en ung munk, renrakad med pigga ögon. "Är det du som är Hugo", frågade han med ett ärligt leende. "Det är det", svarade Hugo. Munken bugade, "Jag heter Reisho, trevligt att träffas". Hugo bugade tillbaka, "Trevligt att göra din bekantskap". "Vi hörde att du skulle komma idag", han tecknade mot templet, "Är det allt du drömt om?". Hugo skrattade, "Än så länge", sade han. "Vad bra. Och det blir ännu bättre. Roshi väntar på din första dokusan". "Redan?", sade Hugo, ärligt förvånad. Han kände sig svettig och hade hoppats komma på plats och få en varm dusch innan han skulle träffa mästaren. "Han vill träffa de nya så fort som möjligt", sade Reisho och log. Det var nog inte första gången han sett Hugos reaktion.
-
-
 
 ---
 
@@ -98,71 +66,68 @@ Hugo rörde sig mot templet samtidigt som han såg munkarna avsluta sin meditati
 
 -------
 
-
-
 Två minuter senare stod Hugo i ett av templets korridorer och väntade på att få komma in till Roshin. Det var både nervöst och spännande. Det var första gången han var i ett tempel för att faktiskt bli munk, och det kändes annorlunda. Längre ner i korridoren stod en stor klocka och en munk stod blickstilla bredvid, allvarlig, med en trästav, en shumoku i händerna. Hans allvarliga blick gjorde Hugo än mer nervös. Genom de tunna pappersväggarna kunde Hugo ana skuggor och dämpade röster, och hur trägolven knarrade när de rörde sig rummet. Snart skulle han vara den som satt därinne, och tanken gjorde att det rörde sig nervöst i magen. Han torkade sina svettiga handflator. Kände sig åter smutsig och svettig efter vandringen och försökte fokusera på omgivningen. Det hängde en tavla precis framför honom med ett kalligrafitecken han inte kände igen. Precis under, en vacker vad med exakt en blomma. Kanske det betydde något. 
 
 Skuggorna inne i rummet rörde sig mer och Hugo förstod att de var på väg att avsluta. Munken i korridoren lyfte sin stav och slog på klockan. Ett dovt, rungande ljud som verkade hänga i luften, när en munk kom ut ur rummet. Blicken i golvet. Han såg aningen upprörd ut. Blicken i golvet. Hugo sänkte blicken i respekt, som att han störde genom att titta på honom, och tittade bara upp igen när munken hade passerat precis framför honom. 
 
 Hugo tittade upp. Och i rummet såg han Roshi. 
 
-Hugo stod kvar i dörröppningen en aning för länge. Rummet var mindre än han hade föreställt sig, enkelt och nästan tomt. Tatamimattor, en låg nisch med en liten buddahstaty, inget mer som distraherade blicken. Och där, mitt i rummet, satt Roshi. Helt stilla, som om han alltid hade suttit där.
+Hugo stod kvar i dörröppningen en aning för länge. Rummet var mindre än han hade föreställt sig, enkelt och nästan tomt. Tatamimattor, en låg nisch med en liten buddhastaty, inget som drog blicken åt något håll. Och där, mitt i rummet, satt Roshi. Helt stilla, som om han alltid hade suttit där.
 
 Hugo rätade instinktivt på ryggen, gick in och bugade djupt med händerna pressade mot varandra.
-
 "Roshi-san, det är min största ära—"
 
 Roshi nickade knappt, gjorde en liten rörelse med handen mot kudden framför sig.
 
-Hugo satte sig. Försökte landa i kroppen, hitta andningen, inte göra fel. Tystnaden fyllde rummet direkt. Den var inte bekväm, inte tom heller, utan tät, som om den redan fanns där och han hade klivit in i den.
+Hugo satte sig. Justerade benen, försökte landa i kroppen, hitta andningen, inte göra fel. Tystnaden fyllde rummet direkt. Den var inte tom, snarare redan där, som något han hade klivit in i för sent.
 
 "Var ärlig."
 
-Orden kom utan förvarning. Inte högt, inte hårt, men med en självklarhet som gjorde dem omöjliga att undvika.
+Orden kom utan förvarning.
 
-Hugo nickade snabbt. "Jag har mediterat i fem år nu. Zazen. Nästan varje dag. Men jag har inte upplevt Kensho." Han hörde själv hur det lät, som något han sagt förut. "Och jag känner inte att jag kommer någonstans. Om jag ska vara ärlig."
+Hugo nickade snabbt. "Jag har mediterat i fem år nu. Zazen. Nästan varje dag. Men jag har inte upplevt Kensho." Han hörde själv hur det lät, som något han sagt förut. "Och jag känner inte att jag kommer någonstans." Han tvekade en kort stund innan han fortsatte. "Jag har läst att… det ibland handlar om att släppa själva ansträngningen. Att inte försöka nå något."
 
-Roshis blick vilade på honom, men utan att riktigt fästa.
+Han tittade upp, lite försiktigt.
 
+Det var något i rummet som förändrades. Inte mycket. Men tillräckligt.
+
+Roshis blick vilade kvar på honom, men nu mer stilla. Som om något hade stannat upp.
 "Du ska vara helt ärlig."
 
-Hugo svalde. "Det är ofta tråkigt. Jag försöker fokusera men tankarna vandrar. Ibland tittar jag på klockan och så har det bara gått några minuter."
+Hugo kände hur magen drog ihop sig, utan att riktigt förstå varför. "Det är ofta tråkigt. Jag försöker fokusera men tankarna vandrar. Ibland tittar jag på klockan och så har det bara gått några minuter."
 
 "Mu."
 
-Ordet landade kort mellan dem.
+Ordet landade mellan dem.
 
-"Ja… jag har försökt med Mu, men—"
+Hugo nickade snabbt. "Ja… precis. Mu." Ett litet, osäkert leende. "Jag har försökt arbeta med det så, som en koan, att man—"
 
-"Fokusera på Mu."
+"Mu."
 
-Ingen förändring i ton eller uttryck.
+Avbrottet kom snabbare den här gången. Leendet stannade kvar en sekund för länge innan det försvann.
 
-Hugo kände hur något i honom sjönk en aning. "Det gör jag, men det känns inte som att det hjälper—"
+Hugo kände det nu tydligt. Han hade sagt något fel. Han visste bara inte vad.
+
+"Ja," sa han, lite lägre. "Jag försöker, men det känns inte som att det hjälper—"
 
 "Du tänker för mycket. Mu."
 
-Sedan tystnad igen.
+Tonfallet hade inte förändrats. Det var nästan det som gjorde det värre.
 
-Hugo väntade. Han var säker på att något mer skulle komma, någon förklaring, något som band ihop allt. Men Roshi satt redan stilla igen, som om samtalet var avslutat.
+Hugo nickade igen, men nu mer försiktigt. Han försökte snabbt gå igenom vad han hade sagt. Var det sättet han formulerade sig på? Att han nämnde vad han läst? Ordet Kensho? Kanske var det något kulturellt, något han inte förstod.
 
-"Ja, Roshi," sa Hugo till slut. "Jag ska fokusera mer."
+Tystnaden föll igen. Den kändes annorlunda nu. Inte bara tät, utan avvisande.
 
-Ingen reaktion. Ingen nick. Ingenting.
+Hugo satt kvar ett ögonblick, väntade, men inget mer kom. "Ja, Roshi," sa han till slut. "Jag ska fokusera mer."
 
-Hugo satt kvar ett ögonblick, försökte läsa av situationen, förstå när han förväntades gå. När inget förändrades bugade han, reste sig försiktigt och backade ett steg.
+Ingen reaktion.
 
-"Det är en stor ära att få ta emot din undervisning."
+Hugo bugade, reste sig försiktigt och backade ett steg. "Det är en stor ära att få ta emot din undervisning." Orden kändes plötsligt inövade.
 
-Orden kändes märkligt tomma när han sa dem.
+Roshi svarade inte.
 
-När han vände sig mot dörren föll hans blick av misstag bakom Roshis kudde. Där, halvt dold, stod en ölflaska. Inte ens särskilt väl gömd.
-
-Han stannade till en bråkdel av en sekund.
-
-När han tittade upp igen mötte han Roshis blick. För första gången var den helt riktad mot honom, inte genom honom, utan medveten om att han hade sett.
-
-Hugo bugade snabbt, öppnade dörren och gick ut. Dörren gled igen bakom honom med ett svagt ljud som dröjde kvar längre än det borde.Hugo stod på knä vid sin tunna madrass och packade upp sina saker när en munk stannade till i dörröppningen. "Vi mediterar om tjugo minuter." Rösten var lugn men lämnade inget utrymme för tvekan. Hugo tittade upp, nickade snabbt och såg hur munken redan var på väg vidare. Rummet omkring honom var enkelt, nästan tomt, sex andra madrasser längs väggarna, några få tillhörigheter prydligt placerade. Han öppnade sin väska igen, plockade fram kläderna han fått, fumlade lite med tyget innan han fick det över axlarna. Det gick fortare än han hade trott, och plötsligt stod han där färdig utan att riktigt förstå hur.
+Hugo vände sig mot dörren, öppnade den och gick ut. Dörren gled igen bakom honom med ett svagt ljud. Ute i korridoren stannade han upp en sekund. En svag, obehaglig känsla låg kvar i kroppen, som att han just brutit mot en regel han inte kände till.
+Hugo stod på knä vid sin tunna madrass och packade upp sina saker när en munk stannade till i dörröppningen. "Vi mediterar om tjugo minuter." Rösten var lugn men lämnade inget utrymme för tvekan. Hugo tittade upp, nickade snabbt och såg hur munken redan var på väg vidare. Rummet omkring honom var enkelt, nästan tomt, sex andra madrasser längs väggarna, några få tillhörigheter prydligt placerade. Han öppnade sin väska igen, plockade fram kläderna han fått, fumlade lite med tyget innan han fick det över axlarna. Det gick fortare än han hade trott, och plötsligt stod han där färdig utan att riktigt förstå hur.
 
 Han följde strömmen av munkar genom korridoren, fortfarande med en svag känsla av att inte vara redo. De rörde sig vant, tyst, som om alla redan visste exakt vad som skulle hända. Hugo gjorde sitt bästa för att efterlikna dem, hålla samma tempo, samma hållning.
 
@@ -180,119 +145,152 @@ Steg bakom honom.
 
 Långsamma, kontrollerade. Han visste direkt vem det var. Roshi rörde sig genom rummet med keisaku-staven i händerna. Hugo kände hur kroppen spände sig en aning men försökte släppa det, återvända till andningen.
 
-Ett slag ekade i rummet. Ett torrt, platt ljud av trä mot kropp. Sedan ett till, längre bort. Hugo satt stilla. Någon hade bett om det, tänkte han. Det var en del av praktiken.
+Ett slag ekade i rummet. Sedan ett till, längre bort. Någon hade bett om det. Det var så det fungerade.
 
-Stegen närmade sig. Han kände dem nu, mer än han hörde dem. Ett tryck i luften bakom ryggen. Han höll händerna kvar i knät. Gjorde sig så liten som möjligt.
+Stegen närmade sig.
+
+Hugo tvekade ett ögonblick.
+
+Sedan höjde han händerna.
+
+Inte helt naturligt, men tillräckligt tydligt. Som en gest han lärt sig snarare än förstått.
 
 Stegen stannade.
 
 En kort paus.
 
-Sedan kom slaget.
+Slaget kom.
 
-Det träffade mellan skulderbladen, hårdare än han hade väntat sig. Luften slogs ur honom i ett kort, ofrivilligt ljud innan han hann stoppa det. Kroppen lutade sig framåt av reflex men han rättade snabbt upp sig igen. Hjärtat slog snabbare nu. Han satt helt stilla och försökte förstå. Han hade inte bett om det.
+Det träffade mellan skulderbladen, fastare än han hade väntat sig. Inte brutalt, men tillräckligt för att kroppen skulle reagera. Ett svagt ljud lämnade honom innan han hann stoppa det. Han lutade sig fram en aning, rättade sedan upp sig igen.
 
-Han sneglade nästan omärkligt åt sidan. Munken bredvid satt fortfarande orörlig, men det fanns något i hans hållning, en spänning, som om något just brutit mot en oskriven regel.
+Mu.
 
-Hugo vände tillbaka blicken mot väggen. Mu.
+Han lät händerna falla tillbaka till knät.
 
-Han försökte återvända till andningen men kroppen var inte längre stilla. Smärtan pulserade svagt i ryggen, spred sig upp mot nacken. Tankarna kom tillbaka direkt. Gjorde jag fel? Satt jag fel? Andades jag fel?
+Stegen fortsatte.
 
-Stegen fortsatte genom rummet. En lättnad hann precis börja forma sig i honom när han kände hur de vände tillbaka.
+Hugo satt kvar, försökte återgå till andningen. Smärtan låg kvar, dov men tydlig. Inte obehaglig på ett sätt han kunde avfärda, men inte heller något han riktigt kunde placera.
 
-De stannade bakom honom igen.
+Han ville inte göra fel.
 
-Den här gången dröjde pausen längre.
+När stegen vände tillbaka visste han inte riktigt vad han skulle göra.
+
+Men innan han hann tänka färdigt hade han redan höjt händerna igen.
+
+Den här gången snabbare. Inte för att han ville. Mer som en försäkran. Att det första hade varit i sin ordning. Att han förstod. Att han inte hade tagit illa upp. Och för att han inte ville känna sig rädd för Roshi på något sätt, inte någonstans, men framför allt inte här i meditationssalen.
+
+Stegen stannade bakom honom.
+
+En kort paus.
 
 Sedan kom slaget.
 
 Hårdare.
 
-Ett lågt ljud lämnade honom innan han hann stoppa det och kroppen vek sig framåt en aning för länge. Han märkte hur rummet reagerade, inte i rörelse utan i små, snabba skiftningar. Några blickar som fladdrade till och sedan försvann.
+Skillnaden var liten, men omöjlig att missa. Kroppen reagerade direkt, ett lågt ljud pressades fram och han lutade sig framåt en aning för långt innan han återtog sin hållning.
 
-"Tystnad."
+Han satt kvar. 
 
-Roshis röst var låg men skarp.
+Händerna föll långsamt ner i knät.
 
-Allt stelnade igen.
+Rummet var oförändrat. Ingen hade rört sig. Ingen hade reagerat.
 
-Hugo rätade långsamt upp sig, blicken tillbaka mot väggen, andningen kortare nu. En varm tår samlades i ögonvrån och föll utan att han rörde sig.
+Men något hade förskjutits.
 
-Mu, tänkte han igen, men ordet kändes annorlunda nu, inte som en öppning utan som något han höll fast vid för att inte falla isär.
+Mu.
 
-Utanför fortsatte vattnet att porla. Inne i rummet satt femtio kroppar orörliga, och någonstans mellan smärtan och stillheten försökte Hugo förstå vad som just hade hänt.Efter meditationen började Hugo lägga märke till livet i templet på ett annat sätt. Inte som en enskild händelse, utan som något som pågick överallt samtidigt. Munkar som sopade gården i långa, rytmiska drag. Andra som sprang framåtböjda med trasor mot golvet, skurade träet med en precision som nästan såg koreograferad ut. Från köket steg ånga och ljudet av metall mot metall blandades med dämpade röster. Allt rörde sig, men utan stress, som om varje uppgift redan hade sin plats i tiden.
+Han försökte återvända, men ordet bar inte på samma sätt. Det fanns något kvar i kroppen, något som inte riktigt gick att släppa.
 
-Hugo stod en stund och bara såg på. Försökte förstå hur han själv passade in i det.
+Utanför fortsatte vattnet att porla.
 
-Smärtan i ryggen låg kvar som ett svagt eko, men den var inte längre lika skarp. Mer som en påminnelse.
+Inne i rummet satt femtio kroppar orörliga.
 
-Han tog några steg ut i trädgården.
+Och Hugo satt där, helt stilla, med en känsla han inte riktigt kunde formulera, men som han redan visste att han skulle bära med sig ut ur rummet.
+Hugo kom ut från meditationssalen lite efter de andra. Stegen var långsammare, inte avsiktligt, utan som om kroppen inte riktigt hunnit ifatt det som just hänt. Luften utanför var svalare. Klarare. Men det hjälpte inte riktigt.
 
-Här var det tystare. Ljuden från templet fanns kvar, men på avstånd, dämpade av mossa och träd. Marken var mjuk under fötterna, täckt av ett tjockt lager grönt som nästan såg overkligt ut. Stenar låg placerade med en sådan exakthet att det kändes som att de alltid hade legat där.
+Han stod kvar en stund vid tröskeln. De andra munkarna hade redan spridit ut sig över gården, gått vidare in i sina uppgifter utan att tveka. Några kastade snabba blickar mot honom, men ingen stannade.
 
-Och där, böjd över marken, var han.
+Smärtan i ryggen låg kvar, dov nu, men närvarande. Inte bara som en fysisk känsla, utan som något han inte kunde placera.
 
-Jojin.
+Han tog några steg framåt, utan tydlig riktning, bort från salen.
 
-Han satt på knä i mossan, med ansiktet nära marken, som om han studerade något mycket litet. I handen höll han ett smalt verktyg och rörde sig långsamt, metodiskt.
+Trädgården bredde ut sig runt honom, men inte den del han först sett. Det här var närmare byggnaden, där trätrallen från meditationssalen mötte marken. Mossan var tunnare här, avbruten av fläckar där jorden syntes igenom. Några stenar låg snett, som om de en gång placerats med omsorg men sedan lämnats. Ett gammalt trästycke stack upp ur marken, sprucket och väderbitet.
 
-Hugo stannade upp.
+Det var fortfarande vackert.
 
-Det var något med scenen som fick honom att andas lugnare.
-
-Jojin lyfte blicken, som om han redan visste att Hugo var där. De möttes med en kort blick, och sedan reste sig den gamle mannen långsamt upp. Han förde samman händerna framför bröstet och bugade.
+Men inte färdigt.
 
 "Är det vackert?"
 
-Hugo log svagt, nästan automatiskt. "Det är vackert."
+Hugo stängde ögonen en bråkdel av en sekund innan han vände sig om.
 
-Den här gången skrattade han inte.
+Jojin stod där.
 
-Jojin nickade, som om svaret betydde något, och pekade ner mot marken där han just arbetat. Hugo tog ett steg närmare och såg vad han höll på med. Små, nästan osynliga ojämnheter i mossan. Några mörkare fläckar, små fragment som brutit den jämna ytan.
+Han hade inte sett honom komma. Den gamle mannen bugade lätt, händerna samlade framför bröstet, och pekade mot den slitna delen av trädgården.
 
-"Vad gör du?" frågade Hugo.
+Hugo följde gesten, men svarade inte direkt. Han var inte riktigt på humör för det här.
 
-Jojin satte sig ner igen och visade med verktyget. "Tar bort det som stör färgen."
+"Det är… fint," sa han till slut, mer av artighet än övertygelse. "Men kanske lite… slitet."
 
-Hugo tittade ut över trädgården. Den bredde ut sig i alla riktningar, ett oändligt hav av grönt.
+Jojin nickade, som om svaret var precis vad han väntat på.
 
-"Gör du det… överallt?"
+"Vad kan förbättras?"
 
-"Överallt."
+Hugo tvekade. Han kastade en snabb blick bort mot gården där de andra munkarna redan var igång med sitt arbete. Han borde gå dit. Inte stå här.
 
-Det var inget i hans röst som antydde att det var orimligt.
+Men Jojin stod kvar.
 
-Jojin lutade sig ännu närmare marken och fortsatte sitt arbete, som om samtalet redan var avslutat. Hans rörelser var långsamma men exakta, varje liten justering gjord med samma omsorg.
+Väntade.
 
-Hugo stod kvar en stund och såg på. Försökte förstå vad han egentligen tittade på. Först såg han ingenting särskilt, bara mossa. Men ju längre han stod där, desto mer började skillnader framträda. Nyanser i grönt. Små skiftningar i ytan. Platser där något var… lite fel.
+Hugo suckade tyst, nästan ohörbart, och tittade tillbaka på platsen framför sig. Den här gången lite noggrannare. Han lät blicken röra sig över detaljerna. Stenarna. Mossan. Träet.
 
-Han pekade försiktigt mot en liten yta några decimeter bort. "Där… är den lite mörkare."
+"Den där," sa han och pekade mot en av stenarna. "Den känns… felplacerad. Lite för nära kanten."
 
-Jojin följde hans finger, nickade direkt, som om han själv redan sett det. Han flyttade sig dit, satte sig ner och började arbeta.
+Jojin följde hans finger och nickade direkt.
 
-Hugo kände hur något lättade i honom.
+"Och mossan där," fortsatte Hugo, nu mer fokuserad än han tänkt sig. "Den är ojämn. Det bryter av lite för mycket."
 
-Det var första gången sedan meditationen som han inte tänkte på slaget.
+Han stannade upp, överraskad över sig själv.
 
-"Blir det vackrare?" frågade han.
+Jojin böjde sig redan ner mot marken, som om varje ord var en instruktion att omsätta direkt.
 
-Jojin stannade upp, tittade upp på honom igen, med samma lugna blick.
+"Mer?" frågade han.
 
-"Det blir klarare."
+Hugo tvekade igen, men blicken hade redan börjat arbeta. Han tog ett steg fram, såg hur trästycket stack upp.
 
-Han återgick till arbetet.
+"Den där… kanske antingen bort helt, eller… mer integrerad. Nu känns den bara… kvarlämnad."
 
-Hugo stod kvar en stund till, men den här gången med en annan känsla. Inte som en besökare, utan som någon som just börjat se något han tidigare missat.
+Jojin nickade igen, djupt den här gången.
 
-När han till slut vände sig om och gick tillbaka mot templet, kastade han en sista blick över axeln. Jojin satt fortfarande kvar i mossan, helt uppslukad av sitt arbete, som om världen utanför inte existerade.
+Hugo märkte att något i honom hade skiftat. Han tänkte inte längre på slaget. Inte på Roshi. Bara på hur allt hängde ihop, eller inte gjorde det.
 
-Och för första gången sedan han kommit dit kändes det som att något, om än väldigt litet, hade fallit på plats.--------
+Sedan hörde han rörelser bakom sig.
 
-"**Shizen** – Former och material ska kännas spontana och organiska, som om de uppstått av naturen själv."
+Munkarna.
 
-------------
+Arbetet hade börjat på riktigt nu.
 
+Han rätade på sig snabbt. "Förlåt, jag borde—"
 
+Han bugade lätt mot Jojin, mer hastigt än tidigare. "Jag måste gå."
+
+Jojin bugade tillbaka, lika djupt som alltid.
+
+"Arigato, Hugo-san."
+
+Hugo nickade och vände sig om, började gå tillbaka mot templet i snabbare steg.
+
+När han nådde trallen kastade han en snabb blick över axeln.
+
+Jojin hade redan satt sig ner i mossan.
+
+Och börjat arbeta.
+
+------
+
+**Shizen** – Former och material ska kännas spontana och organiska, som om de uppstått av naturen själv.
+
+------
 
 Natten var fortfarande kvar när Hugo väcktes. Ett hårt slag mot en gonggong skar genom rummet och kroppen ryckte till innan han ens hann förstå var han var. För ett ögonblick låg han kvar, tung i kroppen, fast mellan sömn och vakenhet, medan de andra munkarna redan var uppe. De rörde sig tyst men snabbt, som om de följde en rytm han ännu inte kunde höra.
 
@@ -302,7 +300,51 @@ De gick i led genom korridoren. Golvet var kallt under fötterna, luften ännu k
 
 Alla satte sig i en gemensam rörelse. En gonggong slog, och chanting fyllde rummet direkt. Ljudet var lågt, monotont, nästan som en enda röst trots att det var många. Hugo försökte följa med men tappade orden, hittade tillbaka, tappade igen. Tröttheten låg som en dimma över tankarna och han kämpade för att hålla sig kvar. Utanför syntes månen genom ett fönster, blek och avlägsen.
 
-När chanting till slut ebbade ut var det inte som ett slut utan som att ljudet bara tunnades bort. Munkarna reste sig direkt. Ingen paus. En hink trycktes i hans händer, en trasa. Han hann knappt reagera innan de andra redan var på väg.
+När chanting till slut ebbade ut var det inte som ett slut utan som att ljudet bara tunnades bort. Men istället för att resa sig stannade munkarna kvar sittande.
+
+Roshi steg fram.
+
+Han stod stilla en stund, som om han väntade på att rummet skulle bli helt tomt på rörelse, inte bara i kropp utan i tanke. När han talade var rösten låg, men den bar genom salen utan ansträngning.
+
+"Ni fäster er vid det ni tycker är vackert."
+
+Ingen rörde sig.
+
+"Former. Färger. Känslor."
+
+En paus.
+
+"Allt ni kallar vackert är redan på väg att försvinna."
+
+Hugo satt stilla, blicken sänkt, men orden skar igenom tröttheten.
+
+"Det ni ser," fortsatte Roshi, "är inte verkligheten. Det är ert begär att hålla fast vid något som inte kan hållas."
+
+En svag rörelse i rummet, knappt märkbar.
+
+"Ni tror att skönhet finns i tinget."
+
+En längre paus.
+
+"Men det är ni som lägger den där."
+
+Hugo kände hur något i honom spände sig.
+
+"Släpp det," sa Roshi.
+
+Tystnad.
+
+"Annars kommer det bli er svaghet."
+
+Orden föll tungt i rummet och blev kvar där, som något som inte kunde skakas av.
+
+Sedan, lika abrupt som det börjat, var det över.
+
+Munkarna reste sig.
+
+Ingen kommentar. Ingen blick.
+
+En hink trycktes i Hugos händer, en trasa. Han hann knappt reagera innan de andra redan var på väg.
 
 Golvet i korridoren var kallt och fuktigt. När han doppade trasan ryckte han till av kylan. De andra var redan igång, framåtböjda, händerna pressade mot tyget, kroppen i rörelse. Hugo gjorde likadant, tryckte trasan mot golvet och började röra sig framåt. Först försiktigt, sedan snabbare för att inte hamna efter. Vattnet trängde in i ärmarna, fingrarna domnade, men han fortsatte. Det enda som hördes var tyg mot trä, andning, steg som rörde sig i samma riktning.
 
@@ -310,101 +352,145 @@ När de var klara hade himlen börjat ljusna, men dagen hade bara börjat. I kö
 
 Han tappade en morot. Fångade upp den direkt och såg sig omkring. Ingen reagerade. Alla fortsatte bara. Men känslan av att kunna göra fel stannade kvar, som något ständigt närvarande.
 
-När han senare gick över gården kändes kroppen tyngre, som om varje rörelse kostade mer än den borde. De andra munkarna passerade honom, fortfarande med samma lugna precision, som om de redan var en del av något han ännu stod utanför. Hugo stannade ett ögonblick, tog ett andetag och försökte förstå hur de gjorde.
+När han senare gick över gården kändes kroppen tyngre, som om varje rörelse kostade mer än den borde. De andra munkarna passerade honom, fortfarande med samma lugna precision, som om de redan var en del av något han ännu stod utanför.
 
 En klocka ringde igen.
 
-Och utan att tänka började han röra sig vidare mot nästa uppgift, i samma riktning som de andra.När solen började stiga förändrades templet igen. Ljuset lade sig mjukt över trädgården utanför meditationssalen, och det som under natten känts strängt och slutet öppnade sig nu. Hugo stod böjd över en liten del av trädgården med en bunt torra kvistar i händerna. Rörelserna var fortfarande ovana, men inte längre helt främmande.
+Och utan att tänka började han röra sig vidare mot nästa uppgift, i samma riktning som de andra.
+När solen började stiga förändrades templet igen. Ljuset lade sig mjukt över trädgården utanför meditationssalen, och det som under natten känts strängt och slutet öppnade sig nu. Munkarna spreds ut över gården och gick direkt in i sina uppgifter, som om inget av det som hänt under natten dröjt kvar. Hugo stod kvar ett ögonblick. Kroppen var tung, sinnet ännu tyngre. Han visste att han borde gå mot köket, eller korridorerna, göra det som förväntades, men istället lät han blicken glida mot trädgården. Mot Jojin.
 
-Han märkte honom innan han såg honom. Jojin stod plötsligt bredvid honom, som om han alltid hade varit där.
+Den gamle mannen stod redan böjd över marken vid den slitna delen nära meditationssalen, där mossan var tunnare och stenarna låg mer oregelbundet. Samma långsamma rörelser, samma fokus. Hugo tog några steg dit, inte helt medvetet, bara… dit. Jojin märkte honom inte direkt, eller så låtsades han inte göra det. Han satt på knä och arbetade med ett litet verktyg, plockade bort något nästan osynligt från mossan.
 
-"Är det vackert?"
+Hugo stannade bredvid honom och såg ner. "Är det vackert?" sa Jojin utan att titta upp. Hugo drog in ett kort andetag, som om han behövde samla sig innan han svarade. "Det börjar bli det," sa han. "Men… det finns saker kvar." Jojin nickade lätt. "Visa."
 
-Hugo log direkt. Den här gången utan tvekan. "Det beror på," sa han och tittade ner på kvistarna. "Vad tycker du?"
+Hugo satte sig ner bredvid honom, lite stelare i rörelsen, och pekade mot en liten yta där mossan bröts av. "Där. Den är ojämn." Jojin följde hans finger och började direkt arbeta där. Hugo tvekade en sekund, sedan sträckte han själv ut handen och plockade bort en liten bit som brutit mönstret. Rörelsen kändes först osäker, men inte fel.
 
-Jojin tog en av kvistarna ur hans hand och höll upp den mellan fingrarna. Betraktade den länge. "Den försöker vara rak."
+De arbetade tysta en stund. Det var annorlunda än allt annat i templet. Inte snabbare, inte långsammare. Bara… utan press.
 
-Hugo skrattade lågt. "Det låter inte som en komplimang."
+"Har du varit här länge?" frågade Hugo till slut, utan att sluta titta på marken. "Två år," svarade Jojin. Hugo nickade. "Jag trodde… det skulle kännas annorlunda," sa han, nästan som en eftertanke. "Lugnare, kanske." Jojin fortsatte arbeta.
 
-"Den är inte färdig," svarade Jojin och lade tillbaka kvisten. Sedan pekade han mot marken där några stenar låg kring en liten yta av mossa. "Är det vackert?"
+"Jobbar du hela tiden?" fortsatte Hugo. "Nej." En kort paus. "Jag laddar på natten."
 
-Hugo följde hans gest, men den här gången tog han sig tid. Han såg hur stenarna låg i förhållande till varandra, hur mossan bröts av, hur en av stenarna lutade lite mer än de andra. "Den där," sa han till slut och pekade, "den lutar för mycket."
+Hugo stannade upp, handen fortfarande vilande mot mossan. "Hur länge?" "Tre timmar."
+"Jag sov knappt alls," sa Hugo lågt.
 
-Jojin nickade direkt och satte sig ner. Han flyttade stenen, bara någon centimeter, och såg sedan upp igen. "Nu?"
+Jojin flyttade en liten sten, tittade på den, justerade den igen. "Systemet blir långsammare utan vila." Hugo stannade upp en sekund, tittade ner på sina händer, sedan tillbaka på mossan. "Då ligger jag nog efter redan," sa han, med en svag antydan till leende. Jojin nickade, som om det var en fullt rimlig observation, och fortsatte arbeta.
 
-Hugo lutade sig fram en aning. "Lite bättre… men nu känns det nästan för rätt."
+Hugo märkte att han lutade sig närmare nu, såg mer noggrant, började justera saker själv utan att fråga, som om han redan förstått något av rytmen. "Tycker du om att vara här?" frågade han, nästan försiktigt.
 
-Jojin stannade upp. "För rätt?"
+Jojin svarade inte direkt. Han pekade mot en liten yta där mossan var ojämn. "Den här behöver jämnas ut." Hugo nickade och började arbeta där. "Jag trodde jag visste vad jag kom hit för," sa han efter en stund. "Men… det känns inte riktigt så längre."
 
-"Ja… som att den försöker passa in för mycket."
+Orden hängde kvar en kort stund. Jojin fortsatte arbeta. "Den här delen behöver mer skugga," sa han och pekade. Hugo följde hans blick. "Jag flyttar den senare." Hugo nickade långsamt. Det var ett svar. Inte det han hade väntat sig, men ändå ett svar.
 
-Det blev tyst en stund. Jojin flyttade tillbaka stenen lite, inte till exakt samma plats, utan någonstans mitt emellan. Han satte sig tillbaka och betraktade det igen. "Nu?"
+De arbetade vidare en stund utan att säga något. Tystnaden var inte tom, inte tung. Den var… tillräcklig.
 
-Hugo log. "Nu känns det som att den inte bryr sig."
+Bakom dem hördes steg. Båda stannade upp. Hugo behövde inte vända sig om; han kände det direkt i kroppen, hur ryggen rätades, hur händerna stannade mitt i rörelsen. Roshi. Stegen passerade bakom dem utan att sakta ner. Ingen av dem sa något.
 
-Jojin nickade, nästan nöjt. "Bra."
+När stegen försvunnit fortsatte Jojin som om inget hänt. Hugo satt kvar en sekund längre, sedan började han också röra sig igen. Lite mer försiktigt nu.
+När klockan slog visste Hugo direkt vad det betydde. Den här gången var han redan på väg innan ljudet hunnit klinga ut. Stegen var jämnare nu, mer kontrollerade. Han höll blicken sänkt, kroppen samlad. Gjorde rätt.
 
-De blev kvar där en stund. Hugo märkte att han inte hade bråttom vidare. För första gången sedan han kommit dit försökte han inte göra rätt, utan bara se. "Vad är vackert för dig?" frågade han.
+Korridoren var densamma, men han var inte det.
 
-Jojin svarade inte direkt. Han plockade bort något nästan osynligt från mossan och höll upp det i ljuset. "Ett fel," sa han. "Om det får vara kvar tillräckligt länge."
+Han ställde sig på sin plats och väntade. Märkte hur han justerade hållningen en aning, hur händerna fann sin position utan att han behövde tänka på det. Andningen långsammare. Redo. Genom den tunna öppningen mot gården föll hans blick ut i trädgården. Han såg Jojin, böjd över marken, samma långsamma rörelser, samma koncentration. Något i honom ville stanna där, bara en stund. Han sänkte snabbt blicken igen. Det kändes… fel. Som att han tittade på något han inte borde.
 
-Hugo skrattade tyst men stannade sedan upp. Orden fastnade. Han såg ut över trädgården igen. Den var inte längre något färdigt, utan något som hela tiden höll på att bli.
+En dörr gled upp. En munk kom ut, bugade lätt och försvann. Klockan slog.
 
-Bakom dem hördes steg. Inte höga, men tydliga. Hugo behövde inte vända sig om. Han kände direkt vem det var. Roshi.
+Hugo gick fram, öppnade dörren och steg in. Bugade djupt. "Roshi."
 
-Stegen fortsatte förbi dem, men något i luften förändrades när han passerade. Hugo märkte hur han rätade på ryggen, hur leendet försvann utan att han tänkte på det. Han kastade en snabb blick åt sidan och såg bara en skymt av Roshis rygg innan han försvann.
+Roshi satt som förut. Samma position. Samma stillhet. Men något var annorlunda.
 
-När stegen tystnat blev det stilla igen, men inte på samma sätt som innan.
+Hugo satte sig ner, försiktigt, lät kroppen falla in i rätt form. Han väntade inte den här gången. "Var ärlig."
 
-Hugo tittade ner på stenarna, på mossan, på den lilla förändringen de just gjort. Något i honom drog sig tillbaka. "Var det fel?" sa han lågt.
+Orden kom.
 
-Jojin svarade inte direkt. Han satt kvar, lugn, som om inget hade förändrats. Sedan pekade han igen mot samma lilla yta. "Är det vackert?"
+Hugo nickade direkt. "Jag har fortsatt med Mu," sa han. "Och jag märker att när jag inte försöker kontrollera det, så… blir det klarare."
 
-Hugo tittade länge. "Ja," sa han till slut.
+En kort paus.
 
-Men den här gången var han inte lika säker.Absolut — här är en ännu mer kompakt version:
+"Du försöker fortfarande."
 
-------
-
-När klockan slog visste Hugo direkt vad det betydde. Han lämnade det han höll på med och gick mot korridoren, den här gången långsammare, som om något i honom drog ut på stegen. Allt var likadant som förut – samma pappersväggar, samma munk vid klockan, samma stillhet – men det kändes annorlunda. Han ställde sig på sin plats och väntade, märkte hur kroppen redan försökte göra rätt, ryggen rakare, händerna stillare.
-
-En dörr gled upp. En munk kom ut, blicken sänkt. Klockan slog. Hugo gick fram, öppnade dörren och steg in. Bugade djupt. "Ärade Roshi." Han satte sig försiktigt ner, medveten om varje rörelse.
-
-"Var ärlig."
-
-"Jag har fokuserat på Mu," sa Hugo snabbt. "Som du sa. Och det känns djupare. Jag tror att jag börjar—"
-
-"Du ljuger."
-
-Hugo stannade upp men nickade direkt. "Ja, Roshi. Du har rätt. Jag kanske ljuger för mig själv."
-
-"Du tänker fortfarande."
-
-"Ja, Roshi."
+Hugo svalde, men nickade igen. "Ja, Roshi."
 
 "Mu."
 
 "Mu."
-
-Tystnaden som följde var inte tom utan laddad, som om något hölls tillbaka. Hugo satt helt stilla, försökte inte säga för mycket. "Jag ska arbeta hårdare," sa han till slut. Ingen reaktion. Roshi tittade bort, som om Hugo redan inte längre fanns där.
-
-Hugo bugade och reste sig, började backa mot dörren. Allt i honom ville göra rätt den här gången. Han var nästan ute när orden kom, innan han hann stoppa dem.
-
-"Jag bryr mig inte om vad du gör på din egen tid."
-
-De hängde kvar i luften. Hugo kände direkt att något var fel. "Jag menar bara… jag är här för att lära. Det är det enda som betyder något."
 
 Tystnad.
 
-När han tittade upp igen hade något förändrats. Roshi satt stilla, men ansiktet var stelt, som om något pressades tillbaka. Blicken som mötte honom var inte längre tom utan riktad, personlig och kall. För ett ögonblick såg Hugo något annat där – inte en mästare, utan en man som blivit träffad på ett sätt han inte kunde acceptera.
+Hugo kände hur han ville fylla den, men höll sig tillbaka en sekund längre än sist. Sedan: "Jag förstår att det inte handlar om att uppnå något," sa han. "Att det är… ett slags släppande."
 
-Hugo bugade snabbt, djupare. "Förlåt, Roshi."
+Orden lät rätt. Han hörde det själv.
 
-Inget svar.
+Roshi rörde sig inte.
 
-Han backade ut, stängde dörren försiktigt bakom sig och gick därifrån med blicken i golvet. Först i korridoren märkte han hur snabbt hjärtat slog.
+"Du samlar ord."
 
-Den här gången visste han att han hade gjort fel.Hugo gick ut i trädgården utan att riktigt veta vart han var på väg. Stegen var snabba först, sedan långsammare, tills han till slut bara gick planlöst mellan stenarna och mossan. Kroppen var spänd, som om mötet fortfarande satt kvar i den. Han försökte andas lugnt, men tankarna fortsatte röra sig. Vad hade han sagt? Varför hade han sagt det?
+Det var inte sagt hårt. Bara konstaterande.
+
+Hugo kände hur något sjönk i honom. "Ja, Roshi."
+
+Tystnad igen.
+
+Han försökte byta riktning. "Jag har arbetat i trädgården," sa han. "Med Jojin. Och jag märker att när jag inte tänker på om något är vackert, så—"
+
+"Släpp skönhet."
+
+Orden kom direkt.
+
+Hugo stannade upp.
+
+"Det är en form. Ett begär."
+
+Hugo nickade snabbt. "Ja, Roshi." Men något i honom drog emot. Han märkte det själv.
+
+Tystnaden växte igen. Den här gången tyngre.
+
+Hugo kände hur något i honom började bli… otåligt. Inte i kroppen, men någonstans bakom den. "Jag vill förstå," sa han.
+
+Det kom innan han hann stoppa det.
+
+Roshis blick lyftes en aning. Inte mycket. Men tillräckligt.
+
+"Vem?"
+
+Hugo öppnade munnen, stängde den igen. "Jag…" började han, men orden föll isär.
+
+Tystnad.
+
+Hugo kände hur pulsen steg. Han försökte samla sig, hitta tillbaka till något stabilt. "Jag litar på din vägledning," sa han till slut.
+
+Det kändes som rätt sak att säga.
+
+Som något en bra elev skulle säga.
+
+Roshi tittade på honom. Länge.
+
+Sedan: "Nej."
+
+Det var inte högt. Inte hårt. Men definitivt.
+
+Hugo kände hur något i honom stannade. Som om marken just flyttats en aning.
+
+Roshi tittade bort. Inte abrupt. Bara… bort. Som om samtalet redan var avslutat.
+
+Hugo satt kvar en sekund för länge igen, bugade djupare än nödvändigt och reste sig. Han började backa mot dörren, försökte hålla rörelserna lugna, kontrollerade. Han var nästan ute när han stannade. Inte helt medvetet. Han såg på Roshi, försökte, bara en sekund, läsa honom. Förstå.
+
+Roshis blick mötte hans direkt.
+
+"Du tittar."
+
+Orden var låga.
+
+Hugo frös till. "Förlåt, Roshi."
+
+Ingen reaktion.
+
+Han bugade igen, öppnade dörren och gick ut. Korridoren kändes kallare nu. Han gick därifrån med blicken i golvet.
+
+Den här gången var det inte bara att han gjort fel.
+
+Det var att han inte längre visste vad rätt var.
+Hugo gick ut i trädgården utan att riktigt veta vart han var på väg. Stegen var snabba först, sedan långsammare, tills han till slut bara gick planlöst mellan stenarna och mossan. Kroppen var spänd, som om mötet fortfarande satt kvar i den. Han försökte andas lugnt, men tankarna fortsatte röra sig. Vad hade han sagt? Varför hade han sagt det?
 
 Han stannade till vid en liten öppen yta. Tittade ner utan att egentligen se.
 
@@ -476,153 +562,189 @@ Hugo tog ett ögonblick innan han svarade. "Ja."
 
 Den här gången kändes det inte som något han borde säga.
 
-De stod kvar en stund till, utan att göra något mer.Det kom inte plötsligt. Det var inget ögonblick där allt föll på plats. Men någonstans mellan dagarna började något förändras.
+De stod kvar en stund till, utan att göra något mer.
+Det skedde inte på en gång, men över dagarna började kroppen vänja sig. Hugo vaknade oftare innan gonggongen. Inte alltid, men tillräckligt för att det skulle kännas som en förändring. Kylan i golvet var inte lika chockerande längre. Rörelserna i korridoren inte lika främmande. Han följde de andra utan att hela tiden behöva tänka på varje steg.
 
-Hugo vaknade innan gonggongen. Inte varje morgon, men tillräckligt ofta för att han skulle märka det. Kroppen hade börjat lära sig rytmen, innan tanken hann ifatt. Han låg kvar en sekund i mörkret, kände rummet omkring sig, de andra som sov, och reste sig sedan utan att tveka.
+Arbetet satte sig i kroppen. Skurandet, bärandet, hackandet i köket. Händerna blev snabbare, mer exakta. Han tappade färre saker, gjorde färre misstag. Och när han gjorde dem var det inte längre samma känsla av att allt stannade upp. Det bara… fortsatte.
 
-I meditationssalen satt han redan stilla när stegen började röra sig bakom honom. När Roshi passerade höll han kroppen avslappnad, utan att göra sig mindre. Slaget kom inte längre lika ofta. Ibland inte alls.
+Men det var i trädgården något annat började ske.
 
-Han rörde sig i led med de andra, utan att tänka på det. Svängde där de svängde, stannade där de stannade. I köket visste han var han skulle stå, vad som behövde göras. Händerna arbetade snabbare nu, utan samma tvekan.
-
-En morgon såg han hur en av munkarna höll på att tappa en stor skål med ris. Rörelsen var liten, men tillräcklig. Hugo var där innan skålen hann luta för långt, händerna under den, stabiliserade vikten utan ett ord.
-
-Munken såg på honom.
-
-En kort paus.
-
-"Det var vackert."
-
-Orden var stilla, nästan neutrala, men Hugo kände igen dem. Han log svagt, utan att riktigt tänka på det.
-
-Sedan blev allt stilla igen.
-
-En skugga i dörröppningen.
-
-Roshi stod där.
-
-Båda blev genast allvarliga. Blickarna ner, rörelserna åter exakta, utan spår av något annat. Roshi sa ingenting. Han stod kvar en stund, som om han vägde något, och gick sedan vidare.
-
-Luften lättade nästan omärkligt när han försvann.
-
-Munken tittade upp igen.
-
-Hugo mötte hans blick.
-
-Utan ett ord lyfte de sina skålar, nästan synkront, och slog dem lätt mot varandra i en snabb, diskret gest innan de återgick till arbetet.
-
-Hugo märkte att han fortfarande log.Här är sektionen, fortsatt i samma ton och sammanhållna stil:
-
-------
-
-Förberedelserna började tidigt, men utan att någon riktigt sa det. Det märktes i små förändringar. Fler rörelser i korridorerna, saker som bars fram och tillbaka, en uppmärksamhet i detaljerna som gick utöver det vanliga. Templet höll på att ställa om, inte i tempo, utan i riktning.
-
-Hugo märkte det först i trädgården.
-
-Jojin stod redan där när han kom ut, omgiven av små lådor med lyktor. De var enkla, nästan oansenliga i dagsljuset, gjorda av tunt papper och trä. Jojin höll en i handen, betraktade den som om den redan var tänd.
+Han drogs dit så fort han kunde. Inte öppet, inte så att det märktes, men tillräckligt ofta för att det skulle bli ett mönster. Jojin var nästan alltid där, böjd över marken, som om han aldrig lämnat den. Och Hugo satte sig bredvid honom, först för att hjälpa till, sedan för att han ville.
 
 "Är det vackert?"
 
-Hugo log svagt men svarade inte direkt. Han tog en lykta ur lådan, vände den långsamt mellan händerna, såg hur ljuset föll genom det tunna pappret. Den var inte vacker i sig själv, inte på samma sätt som trädgården. Men han kunde ana vad den skulle bli.
+Frågan kom fortfarande, men nu svarade Hugo annorlunda. Inte lika snabbt. Han tittade längre, flyttade saker själv innan han svarade. Ibland svarade han inte alls, utan visade.
 
-"Det beror på var den är," sa han till slut.
+Sakta började trädgården förändras. Det var inget drastiskt. Samma stenar, samma mossa, samma ytor. Men något i hur de låg, hur de mötte varandra, hur ljuset föll mellan dem… det var som att något släppt. Mindre perfekt, mer levande.
 
-Jojin nickade, som om det var det enda möjliga svaret.
+Hugo såg det först själv. Sedan började de andra också se det. En munk stannade till en morgon, såg ner på en liten formation Hugo och Jojin arbetat med kvällen innan. "Den försöker inte så mycket längre," sa han. Hugo visste inte om det var ett skämt, men munken log svagt innan han gick vidare. En annan gång, i köket, lutade sig någon fram och sa lågt: "Trädgården börjar få personlighet." Hugo skrattade till, nästan trots sig själv, men kände samtidigt något dra till i bröstet. Stolthet. Och något annat.
 
-De började placera ut dem tillsammans. Först försiktigt, nästan trevande, men snart med ett slags tyst samförstånd. Hugo flyttade en lykta närmare en sten, drog en annan lite bort från gången, lät en tredje stå nästan i skugga där den knappt syntes.
+Han märkte det själv. Hur han började tänka på det även när han inte var där. Hur en sten kunde kännas fel när han gick förbi, hur en skugga kunde vara för skarp eller för jämn. Han började se saker överallt.
 
-"Den där behöver vara ensam," sa han och pekade mot en lykta nära kanten.
+Vad är vackert?
 
-Jojin flyttade den utan att tveka.
+Frågan följde honom, men den förändrades. Det var inte längre ett svar han letade efter, utan något som rörde sig, beroende på var han stod, hur han såg, hur han kände. Roshis ord låg kvar, som något hårdare. Släpp skönhet. Det var en annan riktning. En annan värld.
 
-"Den här… närmare," fortsatte Hugo och justerade själv.
+En kväll, när arbetet ebbat ut och mörkret lagt sig över templet, stod Hugo i en korridor tillsammans med en av de yngre munkarna. De hade just avslutat sina uppgifter. Tystnaden var tjockare nu, mindre strukturerad.
 
-De arbetade länge utan att märka tiden. När solen började sjunka stod lyktorna utspridda över trädgården, som små, vilande punkter. I dagsljuset var de fortfarande diskreta, nästan osynliga.
+"Finns det… internet här?" frågade Hugo lågt.
 
-Men något hade förändrats.
+Munken tittade på honom. Ett ögonblick. Sedan vände han sig om utan att säga något och började gå. Hugo följde efter. De rörde sig genom smalare korridorer, bort från de öppna ytorna. Golven knarrade mer här. Luften var stillastående. Till slut stannade munken utanför en dörr. Han öppnade den.
 
-När mörkret föll samlades de igen. En efter en tändes lyktorna. Små lågor som först fladdrade, sedan blev stilla. Ljuset spreds mjukt över marken, tog upp mossans gröna toner, fångade kanterna på stenarna, skapade djup där det tidigare bara funnits yta.
+Roshis rum.
 
-Hugo tog ett steg tillbaka.
+Hugo tvekade.
 
-Trädgården var inte längre densamma.
+Munken såg på honom, ett svagt, snett leende i mungipan. "Han är i stan," sa han lågt. En kort paus. "Titta inte på sökhistoriken." Sedan gick han.
 
-Den andades på ett annat sätt.
+Hugo stod kvar en sekund innan han steg in. Rummet var enklare än han väntat sig, samma sparsamhet som överallt annars. Men i ett hörn stod en gammal dator. Skärmen var redan på.
 
-Fler munkar hade samlats, först enstaka, sedan flera. De stod tysta, såg ut över det som nu kändes både bekant och nytt.
+Han satte sig långsamt, rörde musen. Fönstret var öppet.
 
-"Är det vackert?" sa någon, med en ton som var lätt, nästan lekfull.
+Bilder.
 
-En annan svarade: "Det beror på var du står."
+Hundratals.
 
-Ett svagt skratt spred sig, snabbt dämpat men ändå närvarande. Några blickar vändes mot Hugo och Jojin. Inte öppet, men tillräckligt för att märkas. Hugo mötte dem, kände något som liknade stolthet, men mindre skarp, mer stilla.
+Japanska trädgårdar. Perfekta kompositioner, extrema detaljer, variationer i mossa, sten, ljus. Sidor med instruktioner, teorier, historiska referenser.
 
-Jojin stod bredvid honom, händerna samlade, blicken över trädgården.
+Han tvekade en sekund. Markören vilade nära historiken. Sedan flyttade han den bort, klickade vidare, förlorade sig. Tiden försvann.
 
-"Är det vackert?" frågade han igen, tystare den här gången.
+När han till slut reste sig var det inte med en känsla av att ha brutit mot något, utan som att han fått tillgång till något han redan sökt.
 
-Hugo lät blicken vandra över ljuset, över hur varje lykta påverkade helheten, hur mörkret mellan dem var lika viktigt som ljuset.
+Dagen efter satt han med Jojin igen. Han sa inget om det, men hans händer rörde sig annorlunda nu, pekade på nya saker, föreslog små förändringar. Jojin följde, som alltid, utan att ifrågasätta. Och sakta, nästan omärkligt, började trädgården förändras igen, bli rikare, mer levande. Varje gång någon stannade upp och såg, varje gång någon log, varje gång någon sa "Är det vackert?" med en annan ton än tidigare, kände Hugo samma dubbla rörelse i sig, något som växte och något som drog åt, som om han var på väg mot något han ännu inte kunde se men som redan börjat förändra allt.
+Det märktes flera dagar i förväg.
 
-"Ja," sa han. "Nu är det vackert."
+Inte genom något som sades rakt ut, utan genom hur allt gjordes. Templet förberedde sig för högtiden. Rörelserna blev fler, mer precisa. Saker bars fram som annars stod undanställda. Golv som redan var rena skurades igen. Tyger vädrades, viktes om. Små detaljer som tidigare lämnats fick nu uppmärksamhet. Någonstans i templet började en annan rytm ta form, inte snabbare, men tätare.
 
-Steg hördes bakom dem.
+Hugo kände det i kroppen innan han riktigt förstod det.
 
-Alla tystnade.
+Arbetet tog längre tid nu. Eller kanske var det han som började se mer av det. Det som tidigare varit en uppgift blev till många små justeringar. En kant som behövde rättas till. Ett föremål som inte riktigt låg där det skulle.
 
-Roshi stod vid kanten av trädgården. Ingen sa något. Ingen rörde sig. Ögonblicket höll andan.
+Han följde med.
 
-Sedan vände han sig om.
+Bar, skurade, lyfte. Svetten rann oftare nu, armarna värkte, men han stannade inte upp. Det fanns något i rörelsen som drog honom vidare, som om allt pekade mot något som ännu inte hänt.
 
-Det räckte.
+Men så fort han kunde gled han undan.
 
-Munkarna började röra sig, stilla men bestämt, tillbaka mot meditationssalen. Hugo följde efter, tillsammans med de andra. När han passerade Jojin möttes deras blickar kort.
+Inte så att det märktes. Bara små avvikelser. En omväg. Några sekunder längre än nödvändigt.
 
-Ingen av dem log.
+Till trädgården.
 
-Men något fanns kvar.
+Jojin var där, som alltid. Men nu låg även små lådor utspridda runt honom. Tunna lyktor av papper och trä, ännu otända, vilande mot marken.
 
-De gick in i salen, satte sig på sina platser, och när klockan slog föll natten tillbaka över dem.Absolut — jag justerar inledningen:
+"Är det vackert?" sa Jojin utan att se upp.
+
+Hugo satte sig ner bredvid honom, andningen fortfarande lite snabbare från arbetet. "Inte än," sa han och tog upp en lykta. Vände den mellan händerna. "Men det kan bli."
+
+Jojin nickade.
+
+Hugo tittade ut över deras del av trädgården. Den var förändrad nu, inte längre bara en plats, utan något som bar spår av deras arbete. Han pekade.
+
+"Den där behöver vara längre bort. Annars konkurrerar den med stenen."
+
+Jojin flyttade den.
+
+"Den här… närmare gången, men inte rakt på."
+
+Jojin justerade.
+
+Hugo lutade sig fram, flyttade själv en lykta en aning, nästan omärkligt. Backade ett steg.
+
+"Nu?"
+
+Jojin följde hans blick.
+
+"Nu."
+
+De arbetade en stund i tystnad. Den var inte tom. Den var fylld av små beslut.
+
+Till slut reste sig Hugo. Han såg bort mot gården där de andra munkarna redan var igång igen med förberedelserna inför högtiden.
+
+"Jag måste—"
+
+Jojin nickade, redan tillbaka i sitt arbete.
+
+Hugo gick.
+
+Mässhallen var varm av rörelse. Bänkar bars, tyger sträcktes, ljus placerades ut i långa rader inför ceremonin. Hugo arbetade tillsammans med de andra, nu utan att tänka på varje steg. Han visste vad som behövdes, eller lärde sig snabbt, men blicken drogs hela tiden bort mot trädgården, mot det som ännu inte var färdigt.
+
+När kvällen föll samlades de. Munkarna rörde sig i en långsam ström mot meditationssalen, nu för nattens ceremoni. Ingen sa något, men det fanns en förväntan i rörelsen, något som låg precis under ytan. Hugo gick med dem.
+
+Och när de passerade trädgården stannade någon. Sedan en till. Rörelsen bröts.
+
+Hugo såg upp.
+
+Lyktorna var tända. Ljuset låg mjukt över marken, fångade mossan, lät stenarna kasta långa, stilla skuggor. Det som tidigare varit en del av trädgården var nu något annat. Samma plats, men öppnad, djupare, vackrare än han hade föreställt sig.
+
+Någon stötte lätt till honom i sidan. "En trädgård för kejsaren", så någon. "Imorgon tar vi inträde", sade någon annan, och munkarna skrattade.
+
+Hugo kände hur något steg i honom, en värme, men också en tvekan. Han såg mot Jojin, som stod stilla vid kanten av ljuset, som om han bara såg.
+
+Steg bakom dem. Alla tystnade.
+
+Roshi.
+
+Han stannade, inte länge, men tillräckligt. Blicken rörde sig över trädgården, över lyktorna, över Hugo, över Jojin. Ingen reaktion. Bara en blick som stannade en aning för länge. Sedan vände han sig och gick vidare.
+
+Det räckte. Munkarna började röra sig igen, som om något släppt.
+
+Hugo stod kvar en sekund, följde sedan efter. När han satte sig i meditationssalen låg ljuset från lyktorna fortfarande kvar i honom, och någonstans under det en annan känsla, som om något just hade gått för långt.
+Här är en mer komprimerad version med färre radbrytningar och jämnare flöde:
 
 ------
 
-De hade suttit i flera timmar när det började. Tiden hade lösts upp, som den gjorde under de längre sittningarna. Andning efter andning, kroppar som höll samma form, månen som långsamt rörde sig över öppningen i väggen. Fullmånen lyste in i salen och lade ett kallt ljus över golvet och de raka raderna av stilla kroppar. Allt var tyst, inte tomt utan mättat, som om själva rummet bar dem.
+Natten hade fallit helt över templet när de samlades. Månen stod högt, nästan full, och lyste in genom de öppna väggarna. Ljuset lade sig över golvet i bleka fält, över kuddarna, över kropparna som redan satt i sina positioner. Allt var stilla, inte tomt utan fyllt, som om rummet bar något som inte behövde sägas.
 
-Hugo satt djupt i stillheten. Kroppen värkte, men inte på ett sätt som störde längre. Smärtan fanns där, men hade blivit en del av bakgrunden. Andningen var jämn. Mu.
+Hugo satte sig och kände det direkt, innan meditationen ens börjat. Något i scenen, i luften, i hur allt föll samman. Träet, ljuset, kropparna, tystnaden. Det var… tidlöst. Han tänkte, nästan utan att vilja det: jag är här. I Japan. Det slog honom inte som en tanke, utan som en känsla, som om han för första gången verkligen förstod var han var.
 
-Stegen började röra sig bakom dem. Långsamma, precisa. Roshi. Det var inget nytt i det, men något i luften var annorlunda, som om något ännu inte visat sig. Stegen stannade bakom Hugo. Ingen signal, inga händer som höjdes.
+Han lyfte blicken en aning. Utanför låg trädgården i månskenet. Där, vid kanten av ljuset, låg deras arbete. Stenarna, mossan, de små lyktorna som brann svagt i natten. Ljuset rörde sig inte, men det kändes levande ändå, som om det andades tillsammans med rummet. Det var vackert. Inte på ett sätt han kunde formulera. Bara… självklart.
 
-Slaget kom direkt.
+Han lät blicken falla tillbaka. Kroppen hittade sin position. Andningen saktade ner. Mu.
 
-Hårt.
+Klockan slog.
 
-Kroppen reagerade innan han hann stoppa den. Ett kort ljud pressades fram och ryggen vek sig framåt innan han drog sig tillbaka upp. Smärtan var skarpare än tidigare, mer riktad. Han höll blicken kvar. Mu.
+Meditationen började.
 
-Stegen gick vidare. Stillheten återvände, men förändrad, tätare. När de kom tillbaka visste Hugo redan vad som skulle hända. De stannade bakom honom igen.
+Stegen rörde sig bakom dem. Roshi. Samma rytm, samma närvaro. Slagen som följde var inte oväntade. Någon bad om dem, någon fick dem. Ljudet av trä mot kropp blandades med andning och tystnad.
 
-Slaget.
+När stegen stannade bakom Hugo höjde han händerna. Slaget kom, hårt, men kroppen tog emot det annorlunda nu. Smärtan fanns där, men den störde inte på samma sätt. Den passerade genom honom snarare än fastnade. Mu. Stegen gick vidare.
 
-Den här gången ännu hårdare. Luften slogs ur honom och han kunde inte hålla tillbaka ett lågt stön. Kroppen vek sig framåt längre innan han långsamt rättade upp sig. Ingen rörde sig, men han visste att de hade hört. Smärtan pulserade genom ryggen, spred sig genom kroppen. Andningen tappade rytmen. Varför?
+Tiden löstes upp. Minuter, eller timmar. Kroppen började värka igen, men det var en annan sorts värk nu, mer som en bakgrund. Andningen fortsatte. Rummet fortsatte.
 
-Han satt kvar.
+Stegen återvände. Hugo kände dem innan han hörde dem. Han höjde inte händerna. Inte av trots, bara… för att han inte ville. Stegen stannade bakom honom. En paus. Sedan kom slaget, hårdare. Det slog igenom kroppen direkt. Luften pressades ur honom i ett ljud han inte hann stoppa. Han vek sig framåt, längre än tidigare, innan han drog sig tillbaka upp.
 
-Sedan, innan nästa runda hann börja, höjde han händerna. Inte tveksamt, utan tydligt. En begäran. Det var första gången. Han visste inte varför han gjorde det, kanske som protest, kanske för att ta tillbaka något.
+Rummet förändrades, knappt märkbart men tillräckligt. Några ögon öppnades.
 
-Stegen närmade sig igen, men stannade inte bara bakom honom. Ett knappt hörbart skifte gick genom rummet. När Hugo öppnade blicken en aning såg han det: händer. Inte bara hans. En efter en hade de andra munkarna höjt sina händer. Inte snabbt, inte demonstrativt, men till slut satt alla där, femtio kroppar i stillhet, med samma gest.
+Roshi slog staven mot golvet. "Fokusera."
 
-Rummet förändrades, inte i ljud utan i riktning.
+Rösten skar genom rummet. Allt stelnade igen.
 
-Stegen stannade länge. När Roshi till slut rörde sig igen var det med en annan tyngd. Han började, slag efter slag, en efter en genom raderna. Ljudet av trä mot rygg fyllde rummet, rytmiskt och obevekligt. Ingen protesterade, ingen rörde sig mer än nödvändigt.
+Hugo satt kvar. Andningen bruten nu, svårare att fånga. Smärtan låg kvar, skarpare, mer närvarande. Mu. Han försökte, men något hade flyttats.
 
-När han nådde Hugo igen var slaget inte mildare, men det var inte längre bara hans. Smärtan var kvar, men inte isolerad. Den delades.
+Tiden gick. Tjugo minuter. Kanske mer.
 
-Hugo höll kvar händerna en sekund längre innan han sänkte dem. Andningen hittade långsamt tillbaka. Mu.
+Stegen kom tillbaka. Den här gången höjde Hugo inte händerna. Inte nu heller. Paus. Slaget kom, ännu hårdare. Den här gången stannade smärtan kvar. Inte bara i kroppen.
 
-Men nu var ordet förändrat igen. Inte något han klamrade sig fast vid, utan något som fanns kvar trots allt. Och någonstans i rummet, under tystnaden, låg något annat kvar, inte sagt men närvarande.------
+Tystnaden höll.
+
+Sedan en rörelse. En. Flera.
+
+Hugo öppnade inte ögonen, men han kände det. Händer. Lyfta. Inte bara hans. Alla. Femtiotvå kroppar, stilla, men med händerna höjda i samma gest. Inte snabbt, inte dramatiskt, men samtidigt.
+
+Rummet förändrades. Inte i ljud, utan i riktning.
+
+Stegen stannade länge. När de började igen var de tyngre. Roshi stod kvar ett ögonblick, blicken rörde sig över raderna. Sedan började han. Slag efter slag, genom rummet, en efter en. Ingen rörde sig. Ingen protesterade. Men något var redan sagt.
+
+När han nådde Hugo igen var slaget lika hårt, men det var inte längre ensamt. Hugo höll kvar händerna en sekund längre, sedan sänkte han dem. Andningen kom tillbaka, långsamt.
+
+Mu.
+
+Men ordet var inte detsamma längre. Och någonstans, under tystnaden, fanns något annat. Inte öppet, men tydligt. En gräns som just hade passerats.
+------
 
 **Yūgen** – Den djupaste skönheten ligger ofta i det antydda och delvis dolda, inte i det helt uttalade.
 
 -----
-
-
 
 När meditationen till slut upplöstes var det inte med ett tydligt slut, utan som att kroppen själv inte längre kunde sitta kvar. En efter en reste sig munkarna, långsamt, som om rörelsen fortsatte något som redan pågått i tystnad. Hugo följde med ut, benen stela, sinnet märkligt klart och tomt på samma gång.
 
@@ -698,7 +820,8 @@ Den här gången var tonen hårdare.
 
 Hugo tog ett steg fram, tveksamt, som om marken förändrats. Han böjde sig ner vid Jojins kropp, stannade upp innan han rörde vid den. Hände darrade svagt. 
 
-Sedan bar han kroppen till förrådet.När Hugo kom tillbaka till Malmö var det som om ingenting hade förändrats. Luften var densamma, tung och stillastående i trapphuset. Stegen upp till lägenheten kändes bekanta på ett sätt han inte hade saknat.
+Sedan bar han kroppen till förrådet.
+När Hugo kom tillbaka till Malmö var det som om ingenting hade förändrats. Luften var densamma, tung och stillastående i trapphuset. Stegen upp till lägenheten kändes bekanta på ett sätt han inte hade saknat.
 
 Han låste upp dörren, gick in och ställde ner ryggsäcken vid skostället. Den föll ihop lite, som om den också tappat formen.
 
