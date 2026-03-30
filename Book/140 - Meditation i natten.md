@@ -1,37 +1,51 @@
-Absolut — jag justerar inledningen:
+Här är en mer komprimerad version med färre radbrytningar och jämnare flöde:
 
 ------
 
-De hade suttit i flera timmar när det började. Tiden hade lösts upp, som den gjorde under de längre sittningarna. Andning efter andning, kroppar som höll samma form, månen som långsamt rörde sig över öppningen i väggen. Fullmånen lyste in i salen och lade ett kallt ljus över golvet och de raka raderna av stilla kroppar. Allt var tyst, inte tomt utan mättat, som om själva rummet bar dem.
+Natten hade fallit helt över templet när de samlades. Månen stod högt, nästan full, och lyste in genom de öppna väggarna. Ljuset lade sig över golvet i bleka fält, över kuddarna, över kropparna som redan satt i sina positioner. Allt var stilla, inte tomt utan fyllt, som om rummet bar något som inte behövde sägas.
 
-Hugo satt djupt i stillheten. Kroppen värkte, men inte på ett sätt som störde längre. Smärtan fanns där, men hade blivit en del av bakgrunden. Andningen var jämn. Mu.
+Hugo satte sig och kände det direkt, innan meditationen ens börjat. Något i scenen, i luften, i hur allt föll samman. Träet, ljuset, kropparna, tystnaden. Det var… tidlöst. Han tänkte, nästan utan att vilja det: jag är här. I Japan. Det slog honom inte som en tanke, utan som en känsla, som om han för första gången verkligen förstod var han var.
 
-Stegen började röra sig bakom dem. Långsamma, precisa. Roshi. Det var inget nytt i det, men något i luften var annorlunda, som om något ännu inte visat sig. Stegen stannade bakom Hugo. Ingen signal, inga händer som höjdes.
+Han lyfte blicken en aning. Utanför låg trädgården i månskenet. Där, vid kanten av ljuset, låg deras arbete. Stenarna, mossan, de små lyktorna som brann svagt i natten. Ljuset rörde sig inte, men det kändes levande ändå, som om det andades tillsammans med rummet. Det var vackert. Inte på ett sätt han kunde formulera. Bara… självklart.
 
-Slaget kom direkt.
+Han lät blicken falla tillbaka. Kroppen hittade sin position. Andningen saktade ner. Mu.
 
-Hårt.
+Klockan slog.
 
-Kroppen reagerade innan han hann stoppa den. Ett kort ljud pressades fram och ryggen vek sig framåt innan han drog sig tillbaka upp. Smärtan var skarpare än tidigare, mer riktad. Han höll blicken kvar. Mu.
+Meditationen började.
 
-Stegen gick vidare. Stillheten återvände, men förändrad, tätare. När de kom tillbaka visste Hugo redan vad som skulle hända. De stannade bakom honom igen.
+Stegen rörde sig bakom dem. Roshi. Samma rytm, samma närvaro. Slagen som följde var inte oväntade. Någon bad om dem, någon fick dem. Ljudet av trä mot kropp blandades med andning och tystnad.
 
-Slaget.
+När stegen stannade bakom Hugo höjde han händerna. Slaget kom, hårt, men kroppen tog emot det annorlunda nu. Smärtan fanns där, men den störde inte på samma sätt. Den passerade genom honom snarare än fastnade. Mu. Stegen gick vidare.
 
-Den här gången ännu hårdare. Luften slogs ur honom och han kunde inte hålla tillbaka ett lågt stön. Kroppen vek sig framåt längre innan han långsamt rättade upp sig. Ingen rörde sig, men han visste att de hade hört. Smärtan pulserade genom ryggen, spred sig genom kroppen. Andningen tappade rytmen. Varför?
+Tiden löstes upp. Minuter, eller timmar. Kroppen började värka igen, men det var en annan sorts värk nu, mer som en bakgrund. Andningen fortsatte. Rummet fortsatte.
 
-Han satt kvar.
+Stegen återvände. Hugo kände dem innan han hörde dem. Han höjde inte händerna. Inte av trots, bara… för att han inte ville. Stegen stannade bakom honom. En paus. Sedan kom slaget, hårdare. Det slog igenom kroppen direkt. Luften pressades ur honom i ett ljud han inte hann stoppa. Han vek sig framåt, längre än tidigare, innan han drog sig tillbaka upp.
 
-Sedan, innan nästa runda hann börja, höjde han händerna. Inte tveksamt, utan tydligt. En begäran. Det var första gången. Han visste inte varför han gjorde det, kanske som protest, kanske för att ta tillbaka något.
+Rummet förändrades, knappt märkbart men tillräckligt. Några ögon öppnades.
 
-Stegen närmade sig igen, men stannade inte bara bakom honom. Ett knappt hörbart skifte gick genom rummet. När Hugo öppnade blicken en aning såg han det: händer. Inte bara hans. En efter en hade de andra munkarna höjt sina händer. Inte snabbt, inte demonstrativt, men till slut satt alla där, femtio kroppar i stillhet, med samma gest.
+Roshi slog staven mot golvet. "Fokusera."
 
-Rummet förändrades, inte i ljud utan i riktning.
+Rösten skar genom rummet. Allt stelnade igen.
 
-Stegen stannade länge. När Roshi till slut rörde sig igen var det med en annan tyngd. Han började, slag efter slag, en efter en genom raderna. Ljudet av trä mot rygg fyllde rummet, rytmiskt och obevekligt. Ingen protesterade, ingen rörde sig mer än nödvändigt.
+Hugo satt kvar. Andningen bruten nu, svårare att fånga. Smärtan låg kvar, skarpare, mer närvarande. Mu. Han försökte, men något hade flyttats.
 
-När han nådde Hugo igen var slaget inte mildare, men det var inte längre bara hans. Smärtan var kvar, men inte isolerad. Den delades.
+Tiden gick. Tjugo minuter. Kanske mer.
 
-Hugo höll kvar händerna en sekund längre innan han sänkte dem. Andningen hittade långsamt tillbaka. Mu.
+Stegen kom tillbaka. Den här gången höjde Hugo inte händerna. Inte nu heller. Paus. Slaget kom, ännu hårdare. Den här gången stannade smärtan kvar. Inte bara i kroppen.
 
-Men nu var ordet förändrat igen. Inte något han klamrade sig fast vid, utan något som fanns kvar trots allt. Och någonstans i rummet, under tystnaden, låg något annat kvar, inte sagt men närvarande.
+Tystnaden höll.
+
+Sedan en rörelse. En. Flera.
+
+Hugo öppnade inte ögonen, men han kände det. Händer. Lyfta. Inte bara hans. Alla. Femtiotvå kroppar, stilla, men med händerna höjda i samma gest. Inte snabbt, inte dramatiskt, men samtidigt.
+
+Rummet förändrades. Inte i ljud, utan i riktning.
+
+Stegen stannade länge. När de började igen var de tyngre. Roshi stod kvar ett ögonblick, blicken rörde sig över raderna. Sedan började han. Slag efter slag, genom rummet, en efter en. Ingen rörde sig. Ingen protesterade. Men något var redan sagt.
+
+När han nådde Hugo igen var slaget lika hårt, men det var inte längre ensamt. Hugo höll kvar händerna en sekund längre, sedan sänkte han dem. Andningen kom tillbaka, långsamt.
+
+Mu.
+
+Men ordet var inte detsamma längre. Och någonstans, under tystnaden, fanns något annat. Inte öppet, men tydligt. En gräns som just hade passerats.
