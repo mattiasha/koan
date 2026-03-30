@@ -1,43 +1,103 @@
-Absolut — här är en ännu mer kompakt version:
+När klockan slog visste Hugo direkt vad det betydde. Den här gången var han redan på väg innan ljudet hunnit klinga ut. Stegen var jämnare nu, mer kontrollerade. Han höll blicken sänkt, kroppen samlad. Gjorde rätt.
 
-------
+Korridoren var densamma, men han var inte det.
 
-När klockan slog visste Hugo direkt vad det betydde. Han lämnade det han höll på med och gick mot korridoren, den här gången långsammare, som om något i honom drog ut på stegen. Allt var likadant som förut – samma pappersväggar, samma munk vid klockan, samma stillhet – men det kändes annorlunda. Han ställde sig på sin plats och väntade, märkte hur kroppen redan försökte göra rätt, ryggen rakare, händerna stillare.
+Han ställde sig på sin plats och väntade. Märkte hur han justerade hållningen en aning, hur händerna fann sin position utan att han behövde tänka på det. Andningen långsammare. Redo. Genom den tunna öppningen mot gården föll hans blick ut i trädgården. Han såg Jojin, böjd över marken, samma långsamma rörelser, samma koncentration. Något i honom ville stanna där, bara en stund. Han sänkte snabbt blicken igen. Det kändes… fel. Som att han tittade på något han inte borde.
 
-En dörr gled upp. En munk kom ut, blicken sänkt. Klockan slog. Hugo gick fram, öppnade dörren och steg in. Bugade djupt. "Ärade Roshi." Han satte sig försiktigt ner, medveten om varje rörelse.
+En dörr gled upp. En munk kom ut, bugade lätt och försvann. Klockan slog.
 
-"Var ärlig."
+Hugo gick fram, öppnade dörren och steg in. Bugade djupt. "Roshi."
 
-"Jag har fokuserat på Mu," sa Hugo snabbt. "Som du sa. Och det känns djupare. Jag tror att jag börjar—"
+Roshi satt som förut. Samma position. Samma stillhet. Men något var annorlunda.
 
-"Du ljuger."
+Hugo satte sig ner, försiktigt, lät kroppen falla in i rätt form. Han väntade inte den här gången. "Var ärlig."
 
-Hugo stannade upp men nickade direkt. "Ja, Roshi. Du har rätt. Jag kanske ljuger för mig själv."
+Orden kom.
 
-"Du tänker fortfarande."
+Hugo nickade direkt. "Jag har fortsatt med Mu," sa han. "Och jag märker att när jag inte försöker kontrollera det, så… blir det klarare."
 
-"Ja, Roshi."
+En kort paus.
+
+"Du försöker fortfarande."
+
+Hugo svalde, men nickade igen. "Ja, Roshi."
 
 "Mu."
 
 "Mu."
-
-Tystnaden som följde var inte tom utan laddad, som om något hölls tillbaka. Hugo satt helt stilla, försökte inte säga för mycket. "Jag ska arbeta hårdare," sa han till slut. Ingen reaktion. Roshi tittade bort, som om Hugo redan inte längre fanns där.
-
-Hugo bugade och reste sig, började backa mot dörren. Allt i honom ville göra rätt den här gången. Han var nästan ute när orden kom, innan han hann stoppa dem.
-
-"Jag bryr mig inte om vad du gör på din egen tid."
-
-De hängde kvar i luften. Hugo kände direkt att något var fel. "Jag menar bara… jag är här för att lära. Det är det enda som betyder något."
 
 Tystnad.
 
-När han tittade upp igen hade något förändrats. Roshi satt stilla, men ansiktet var stelt, som om något pressades tillbaka. Blicken som mötte honom var inte längre tom utan riktad, personlig och kall. För ett ögonblick såg Hugo något annat där – inte en mästare, utan en man som blivit träffad på ett sätt han inte kunde acceptera.
+Hugo kände hur han ville fylla den, men höll sig tillbaka en sekund längre än sist. Sedan: "Jag förstår att det inte handlar om att uppnå något," sa han. "Att det är… ett slags släppande."
 
-Hugo bugade snabbt, djupare. "Förlåt, Roshi."
+Orden lät rätt. Han hörde det själv.
 
-Inget svar.
+Roshi rörde sig inte.
 
-Han backade ut, stängde dörren försiktigt bakom sig och gick därifrån med blicken i golvet. Först i korridoren märkte han hur snabbt hjärtat slog.
+"Du samlar ord."
 
-Den här gången visste han att han hade gjort fel.
+Det var inte sagt hårt. Bara konstaterande.
+
+Hugo kände hur något sjönk i honom. "Ja, Roshi."
+
+Tystnad igen.
+
+Han försökte byta riktning. "Jag har arbetat i trädgården," sa han. "Med Jojin. Och jag märker att när jag inte tänker på om något är vackert, så—"
+
+"Släpp skönhet."
+
+Orden kom direkt.
+
+Hugo stannade upp.
+
+"Det är en form. Ett begär."
+
+Hugo nickade snabbt. "Ja, Roshi." Men något i honom drog emot. Han märkte det själv.
+
+Tystnaden växte igen. Den här gången tyngre.
+
+Hugo kände hur något i honom började bli… otåligt. Inte i kroppen, men någonstans bakom den. "Jag vill förstå," sa han.
+
+Det kom innan han hann stoppa det.
+
+Roshis blick lyftes en aning. Inte mycket. Men tillräckligt.
+
+"Vem?"
+
+Hugo öppnade munnen, stängde den igen. "Jag…" började han, men orden föll isär.
+
+Tystnad.
+
+Hugo kände hur pulsen steg. Han försökte samla sig, hitta tillbaka till något stabilt. "Jag litar på din vägledning," sa han till slut.
+
+Det kändes som rätt sak att säga.
+
+Som något en bra elev skulle säga.
+
+Roshi tittade på honom. Länge.
+
+Sedan: "Nej."
+
+Det var inte högt. Inte hårt. Men definitivt.
+
+Hugo kände hur något i honom stannade. Som om marken just flyttats en aning.
+
+Roshi tittade bort. Inte abrupt. Bara… bort. Som om samtalet redan var avslutat.
+
+Hugo satt kvar en sekund för länge igen, bugade djupare än nödvändigt och reste sig. Han började backa mot dörren, försökte hålla rörelserna lugna, kontrollerade. Han var nästan ute när han stannade. Inte helt medvetet. Han såg på Roshi, försökte, bara en sekund, läsa honom. Förstå.
+
+Roshis blick mötte hans direkt.
+
+"Du tittar."
+
+Orden var låga.
+
+Hugo frös till. "Förlåt, Roshi."
+
+Ingen reaktion.
+
+Han bugade igen, öppnade dörren och gick ut. Korridoren kändes kallare nu. Han gick därifrån med blicken i golvet.
+
+Den här gången var det inte bara att han gjort fel.
+
+Det var att han inte längre visste vad rätt var.
