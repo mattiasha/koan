@@ -48,13 +48,7 @@ När stegen vände tillbaka visste han inte riktigt vad han skulle göra.
 
 Men innan han hann tänka färdigt hade han redan höjt händerna igen.
 
-Den här gången snabbare.
-
-Inte för att han ville.
-
-Mer som en försäkran.
-
-Att det första hade varit i sin ordning. Att han förstod. Att han inte hade tagit illa upp.
+Den här gången snabbare. Inte för att han ville. Mer som en försäkran. Att det första hade varit i sin ordning. Att han förstod. Att han inte hade tagit illa upp. Och för att han inte ville känna sig rädd för Roshi på något sätt, inte någonstans, men framför allt inte här i meditationssalen.
 
 Stegen stannade bakom honom.
 
@@ -66,7 +60,7 @@ Hårdare.
 
 Skillnaden var liten, men omöjlig att missa. Kroppen reagerade direkt, ett lågt ljud pressades fram och han lutade sig framåt en aning för långt innan han återtog sin hållning.
 
-Han satt kvar.
+Han satt kvar. 
 
 Händerna föll långsamt ner i knät.
 
