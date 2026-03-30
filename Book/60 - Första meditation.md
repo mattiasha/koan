@@ -16,44 +16,70 @@ Steg bakom honom.
 
 Långsamma, kontrollerade. Han visste direkt vem det var. Roshi rörde sig genom rummet med keisaku-staven i händerna. Hugo kände hur kroppen spände sig en aning men försökte släppa det, återvända till andningen.
 
-Ett slag ekade i rummet. Ett torrt, platt ljud av trä mot kropp. Sedan ett till, längre bort. Hugo satt stilla. Någon hade bett om det, tänkte han. Det var en del av praktiken.
+Ett slag ekade i rummet. Sedan ett till, längre bort. Någon hade bett om det. Det var så det fungerade.
 
-Stegen närmade sig. Han kände dem nu, mer än han hörde dem. Ett tryck i luften bakom ryggen. Han höll händerna kvar i knät. Gjorde sig så liten som möjligt.
+Stegen närmade sig.
+
+Hugo tvekade ett ögonblick.
+
+Sedan höjde han händerna.
+
+Inte helt naturligt, men tillräckligt tydligt. Som en gest han lärt sig snarare än förstått.
 
 Stegen stannade.
 
 En kort paus.
 
-Sedan kom slaget.
+Slaget kom.
 
-Det träffade mellan skulderbladen, hårdare än han hade väntat sig. Luften slogs ur honom i ett kort, ofrivilligt ljud innan han hann stoppa det. Kroppen lutade sig framåt av reflex men han rättade snabbt upp sig igen. Hjärtat slog snabbare nu. Han satt helt stilla och försökte förstå. Han hade inte bett om det.
+Det träffade mellan skulderbladen, fastare än han hade väntat sig. Inte brutalt, men tillräckligt för att kroppen skulle reagera. Ett svagt ljud lämnade honom innan han hann stoppa det. Han lutade sig fram en aning, rättade sedan upp sig igen.
 
-Han sneglade nästan omärkligt åt sidan. Munken bredvid satt fortfarande orörlig, men det fanns något i hans hållning, en spänning, som om något just brutit mot en oskriven regel.
+Mu.
 
-Hugo vände tillbaka blicken mot väggen. Mu.
+Han lät händerna falla tillbaka till knät.
 
-Han försökte återvända till andningen men kroppen var inte längre stilla. Smärtan pulserade svagt i ryggen, spred sig upp mot nacken. Tankarna kom tillbaka direkt. Gjorde jag fel? Satt jag fel? Andades jag fel?
+Stegen fortsatte.
 
-Stegen fortsatte genom rummet. En lättnad hann precis börja forma sig i honom när han kände hur de vände tillbaka.
+Hugo satt kvar, försökte återgå till andningen. Smärtan låg kvar, dov men tydlig. Inte obehaglig på ett sätt han kunde avfärda, men inte heller något han riktigt kunde placera.
 
-De stannade bakom honom igen.
+Han ville inte göra fel.
 
-Den här gången dröjde pausen längre.
+När stegen vände tillbaka visste han inte riktigt vad han skulle göra.
+
+Men innan han hann tänka färdigt hade han redan höjt händerna igen.
+
+Den här gången snabbare.
+
+Inte för att han ville.
+
+Mer som en försäkran.
+
+Att det första hade varit i sin ordning. Att han förstod. Att han inte hade tagit illa upp.
+
+Stegen stannade bakom honom.
+
+En kort paus.
 
 Sedan kom slaget.
 
 Hårdare.
 
-Ett lågt ljud lämnade honom innan han hann stoppa det och kroppen vek sig framåt en aning för länge. Han märkte hur rummet reagerade, inte i rörelse utan i små, snabba skiftningar. Några blickar som fladdrade till och sedan försvann.
+Skillnaden var liten, men omöjlig att missa. Kroppen reagerade direkt, ett lågt ljud pressades fram och han lutade sig framåt en aning för långt innan han återtog sin hållning.
 
-"Tystnad."
+Han satt kvar.
 
-Roshis röst var låg men skarp.
+Händerna föll långsamt ner i knät.
 
-Allt stelnade igen.
+Rummet var oförändrat. Ingen hade rört sig. Ingen hade reagerat.
 
-Hugo rätade långsamt upp sig, blicken tillbaka mot väggen, andningen kortare nu. En varm tår samlades i ögonvrån och föll utan att han rörde sig.
+Men något hade förskjutits.
 
-Mu, tänkte han igen, men ordet kändes annorlunda nu, inte som en öppning utan som något han höll fast vid för att inte falla isär.
+Mu.
 
-Utanför fortsatte vattnet att porla. Inne i rummet satt femtio kroppar orörliga, och någonstans mellan smärtan och stillheten försökte Hugo förstå vad som just hade hänt.
+Han försökte återvända, men ordet bar inte på samma sätt. Det fanns något kvar i kroppen, något som inte riktigt gick att släppa.
+
+Utanför fortsatte vattnet att porla.
+
+Inne i rummet satt femtio kroppar orörliga.
+
+Och Hugo satt där, helt stilla, med en känsla han inte riktigt kunde formulera, men som han redan visste att han skulle bära med sig ut ur rummet.
