@@ -1,7 +1,3 @@
-Här är en mer komprimerad version med färre radbrytningar och jämnare flöde:
-
-------
-
 Natten hade fallit helt över templet när de samlades. Månen stod högt, nästan full, och lyste in genom de öppna väggarna. Ljuset lade sig över golvet i bleka fält, över kuddarna, över kropparna som redan satt i sina positioner. Allt var stilla, inte tomt utan fyllt, som om rummet bar något som inte behövde sägas.
 
 Hugo satte sig och kände det direkt, innan meditationen ens börjat. Något i scenen, i luften, i hur allt föll samman. Träet, ljuset, kropparna, tystnaden. Det var… tidlöst. Han tänkte, nästan utan att vilja det: jag är här. I Japan. Det slog honom inte som en tanke, utan som en känsla, som om han för första gången verkligen förstod var han var.

@@ -13,12 +13,15 @@ FILES=(
         "70 - Stressad men artig mot Jojin.md"
         "80 - Första meditation.md"
         "90 - Tvingad att jobba med Jojin.md"
-        "100 - Andra doskusan.md"
-        "110 - Tröstas av Jojin.md"
-        "120 - Vänjer sig vid tempellivet.md"
+        "95 - Vänjer sig lite vid livet.md"
+	"97 - Går med lite på Jojins tankar.md"
+	"100 - Andra doskusan.md"
+        "110 - Skäller ut Jojin.md"
+        "120 - Lever korrekt men stelt tempelliv.md"
         "130 - Förbereder högtid.md"
         "140 - Meditation i natten.md"
         "150 - Jojin blir avstängd.md"
+	"155 - Hugo sörjer Jojin och Roshi utfryst.md"
         "160 - Hugo kommer hem.md"
 )
 

@@ -8,7 +8,7 @@ Arbetet tog längre tid nu. Eller kanske var det han som började se mer av det.
 
 Han följde med.
 
-Bar, skurade, lyfte. Svetten rann oftare nu, armarna värkte, men han stannade inte upp. Det fanns något i rörelsen som drog honom vidare, som om allt pekade mot något som ännu inte hänt.
+Bar, skurade, lyfte. Svetten rann oftare nu, armarna värkte, tempot hölls uppe av något som inte gick att pausa. Någon ropade efter fler händer i köket. Någon annan bar förbi honom med staplar av skålar. Allt pågick samtidigt. Det fanns inget mellanrum längre.
 
 Men så fort han kunde gled han undan.
 
@@ -18,41 +18,85 @@ Till trädgården.
 
 Jojin var där, som alltid. Men nu låg även små lådor utspridda runt honom. Tunna lyktor av papper och trä, ännu otända, vilande mot marken.
 
-"Är det vackert?" sa Jojin utan att se upp.
+Hugo satte sig ner bredvid honom, men sa inget direkt. Han tog upp en lykta, höll den i händerna en sekund för länge.
 
-Hugo satte sig ner bredvid honom, andningen fortfarande lite snabbare från arbetet. "Inte än," sa han och tog upp en lykta. Vände den mellan händerna. "Men det kan bli."
+"Den där…" sa han till slut, lågt. "…blev bättre innan."
+
+Det var inte riktigt en ursäkt.
+
+Men tillräckligt nära.
 
 Jojin nickade.
 
-Hugo tittade ut över deras del av trädgården. Den var förändrad nu, inte längre bara en plats, utan något som bar spår av deras arbete. Han pekade.
+"Är det vackert?" sa han.
 
-"Den där behöver vara längre bort. Annars konkurrerar den med stenen."
+Hugo andades ut, kort. "Inte än. Men det… börjar."
 
-Jojin flyttade den.
+Han tittade ut över deras del av trädgården. Försökte samla tankarna. Strukturera. Men det gick inte lika snabbt längre. Allt rörde sig för fort runt honom.
 
-"Den här… närmare gången, men inte rakt på."
+"Den där behöver vara längre bort," sa han ändå, pekade. "Annars—"
 
-Jojin justerade.
+Han stannade upp mitt i meningen.
 
-Hugo lutade sig fram, flyttade själv en lykta en aning, nästan omärkligt. Backade ett steg.
+Jojin väntade inte. Flyttade den en aning.
 
-"Nu?"
+Hugo såg på det.
 
-Jojin följde hans blick.
+Det fungerade.
 
-"Nu."
+Han sa inget.
 
-De arbetade en stund i tystnad. Den var inte tom. Den var fylld av små beslut.
+De fortsatte.
 
-Till slut reste sig Hugo. Han såg bort mot gården där de andra munkarna redan var igång igen med förberedelserna inför högtiden.
+Arbetet gick snabbare nu. Inte genom planering, utan genom rörelse. Hugo flyttade en lykta, stannade inte för att analysera, bara såg, justerade. Tog ett steg tillbaka. Fram igen. Något föll på plats, utan att han riktigt visste varför.
 
-"Jag måste—"
+En stund försökte han fortfarande tänka. "Om vi placerar dem i en—"
 
-Jojin nickade, redan tillbaka i sitt arbete.
+Han avbröt sig själv.
 
-Hugo gick.
+Det hjälpte inte.
 
-Mässhallen var varm av rörelse. Bänkar bars, tyger sträcktes, ljus placerades ut i långa rader inför ceremonin. Hugo arbetade tillsammans med de andra, nu utan att tänka på varje steg. Han visste vad som behövdes, eller lärde sig snabbt, men blicken drogs hela tiden bort mot trädgården, mot det som ännu inte var färdigt.
+Istället följde han Jojin.
+
+Inte genom att imitera exakt, utan genom att sluta styra. Se. Flytta. Stanna. Vänta.
+
+Tempot ökade runt dem. Röster på avstånd. Någon som sprang genom gården. Ljuset förändrades sakta.
+
+Hugo märkte knappt när det hände.
+
+Att han slutade formulera sig.
+
+Att han slutade förklara.
+
+Att han bara arbetade.
+
+Han tog en lykta, höll den framför sig, flyttade den några centimeter, backade. Stannade.
+
+Den var rätt.
+
+Inte perfekt.
+
+Men rätt.
+
+Han log svagt.
+
+"Nu," sa han.
+
+Jojin nickade.
+
+De arbetade vidare, sida vid sida, utan att säga mycket mer.
+
+När Hugo till slut reste sig var kroppen trött på ett annat sätt än tidigare. Inte pressad. Bara… använd.
+
+Han såg ut över trädgården.
+
+Den var inte färdig.
+
+Men den behövde inte bli mer färdig än så.
+
+Han gick.
+
+Mässhallen var varm av rörelse. Bänkar bars, tyger sträcktes, ljus placerades ut i långa rader inför ceremonin. Hugo arbetade tillsammans med de andra, snabbt nu, utan att fastna. Han visste vad som behövdes, eller kände det, men blicken drogs hela tiden bort mot trädgården.
 
 När kvällen föll samlades de. Munkarna rörde sig i en långsam ström mot meditationssalen, nu för nattens ceremoni. Ingen sa något, men det fanns en förväntan i rörelsen, något som låg precis under ytan. Hugo gick med dem.
 
@@ -62,7 +106,11 @@ Hugo såg upp.
 
 Lyktorna var tända. Ljuset låg mjukt över marken, fångade mossan, lät stenarna kasta långa, stilla skuggor. Det som tidigare varit en del av trädgården var nu något annat. Samma plats, men öppnad, djupare, vackrare än han hade föreställt sig.
 
-Någon stötte lätt till honom i sidan. "En trädgård för kejsaren", så någon. "Imorgon tar vi inträde", sade någon annan, och munkarna skrattade.
+"En trädgård för kejsaren," sa någon.
+
+"Imorgon tar vi inträde," svarade en annan.
+
+Ett dämpat skratt spred sig.
 
 Hugo kände hur något steg i honom, en värme, men också en tvekan. Han såg mot Jojin, som stod stilla vid kanten av ljuset, som om han bara såg.
 
@@ -74,4 +122,6 @@ Han stannade, inte länge, men tillräckligt. Blicken rörde sig över trädgår
 
 Det räckte. Munkarna började röra sig igen, som om något släppt.
 
-Hugo stod kvar en sekund, följde sedan efter. När han satte sig i meditationssalen låg ljuset från lyktorna fortfarande kvar i honom, och någonstans under det en annan känsla, som om något just hade gått för långt.
+Hugo stod kvar en sekund, följde sedan efter. När han satte sig i meditationssalen låg ljuset från lyktorna fortfarande kvar i honom, och någonstans under det en annan känsla.
+
+Som om något just hade förändrats.

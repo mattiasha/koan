@@ -1,11 +1,3 @@
-------
-
-**Yūgen** – Den djupaste skönheten ligger ofta i det antydda och delvis dolda, inte i det helt uttalade.
-
------
-
-
-
 När meditationen till slut upplöstes var det inte med ett tydligt slut, utan som att kroppen själv inte längre kunde sitta kvar. En efter en reste sig munkarna, långsamt, som om rörelsen fortsatte något som redan pågått i tystnad. Hugo följde med ut, benen stela, sinnet märkligt klart och tomt på samma gång.
 
 Morgonljuset hade just börjat bryta fram. Himlen var blek, nästan färglös, och luften kall mot huden. Han tog några steg ut på gården, drog in ett djupt andetag.
