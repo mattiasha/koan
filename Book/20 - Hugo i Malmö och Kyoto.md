@@ -1,44 +1,89 @@
--------
-
-**Fukinsei** – Skönhet uppstår genom obalans och variation snarare än perfekt symmetri.
-
------
-
-
-
-Det var så otroligt vackert. 
+Det var så otroligt vackert.
 
 Som ett sagolandskap.
 
-Hugo vandrade i bergen kring Kyoto. Hösten var på väg, och de klarröda löv han sett så ofta på instagram hade börjat sprida sig bland det gröna i trädkronorna. Lite längre fram såg han en lika röd torii-port, ett valv över en stig som bara verkade leda längre in i skogen. Någonstans bredvid honom var en bäck. Han kunde inte se den, men han hörde hur den porlade. Lite längre fram såg han en gammal stenlykta, en tōrō, lite sned, överväxt med mossa. Han fortsatte uppåt.
+Hugo vandrade i bergen kring Kyoto. Hösten var på väg, och de klarröda löv han sett så ofta på Instagram hade börjat sprida sig bland det gröna i trädkronorna. Lite längre fram såg han en lika röd torii-port, ett valv över en stig som verkade leda djupare in i skogen. Någonstans bredvid honom hördes en bäck. Han kunde inte se den, men ljudet av rinnande vatten följde honom uppför stigen. Lite längre fram stod en gammal stenlykta, en tōrō, lätt lutad, överväxt med mossa. Han fortsatte uppåt.
 
-*Hugo torkade bladen på sitt nyköpta bonsai med papper. När han nu hade betalt över femtonhundra för det skulle han se till att det överlevde. Han tryckte på play-knappen för den youtube-tutorial han titttade på, de visade att man skulle torka både ovan- och undersida av bladet, så han tryckte på paus igen och gjorde som de visat. Han lutade sig tillbaka för att få överblick. Det var något med de små stenarna under som inte stämde, så han flyttade några av dem. Lutade sig tillbaka.Det gjorde ingen skillnad.*
+*Hugo torkade bladen på sitt nyköpta bonsai med papper. Han tryckte på paus på youtube-videon, lutade sig fram och torkade undersidan av varje blad, precis som de visade. Sedan ovansidan. Metodiskt. Han tryckte på play igen. Paus. Justerade. Lutade sig tillbaka för att få överblick.*
 
-Sakta kämpade han sig upp de sista hundra meterna till han kom upp till bergstoppen. Han hade egentligen tänkt vila när han kom upp, men utsikten var så slående att nu knappt märkte att han var trött. Till vänster bredde Kyoto ut sig. En platt stad med bruna hustak, i en dal, inringad av berg på tre sidor. Floden som ringlade genom staden. Rök från restaurangerna i de gamla Samuraikvarteren. Bland hustaken stack de vackra pagodas upp. Han vande sig aldrig vid dem. Även när man gick på Kyotos gator dök de ofta oväntat upp, likt små gudar stående tysta bland gränderna. Till höger, skog, i mitt i skogen ett tempel, omgivet av japansk lönn i grönt och rött. Han hörde en klocka ringa och ljudet ekade i dalen. 
+*Det var något som inte stämde.*
 
-*Regnet smattrade mot rutan. Det blöta vädret fick Malmös gator att se ännu gråare ut än vanligt. Han försökte meditera, men han var orolig i kroppen och den lilla kula av obestämd ångest som satt i magen på honom verkade bara bli värre, inte bättre. Istället satte han sig vid skrivbordet och läste 'Zens tre grundprinciper', läste om kapitlen om människor som hade uppnått Kensho. Det måste vara minst tjugonde gången han läste om kapitlet. Googlade "Zen retreats Kyoto". Telefonen ringde. Hans mamma. Visste att hon oroligt skulle undra om han och Selina hade blivit tillsammans igen. Han stängde av telefonen. Tittade upp på fotot av Selina på skrivbordet. Lade det med fotot ner. Ställde upp det upp igen. Ångrade sig. Lade det ner. Googlade "Bästa zen retreat Kyoto tempel"*
+*Han flyttade en av de små stenarna. Lutade sig tillbaka igen. Ingenting förändrades.*
 
-När han gav sig neråt igen passerade han en hjort som gick över stigen framför honom. Hugo stannade. Hjorten stannade. De tittade på varandra. Bägge lika fascinerade. Hugo försökte att inte röra sig för att inte skrämma djuret och de stod där bägge två i flera minuter, till hjorten till sist hoppade ut i skogen. Längre fram såg Hugo skylten han letat efter. En gammal träskylt i ek som pekade längs med en stig. 'Konpuku-ji', stod det på skylten med japanska tecken. Det var templet han skulle till. 
+Sakta kämpade han sig upp de sista hundra meterna tills han nådde toppen. Han hade tänkt vila, men utsikten slog honom så starkt att han glömde bort tröttheten. Till vänster bredde Kyoto ut sig, en låg stad i en dal, omgiven av berg. Hustaken låg som ett mönster, och mellan dem slingrade sig en flod. Rök steg från restaurangerna i de gamla kvarteren. Här och där reste sig pagoder över takåsarna. Han vande sig aldrig vid dem. De dök upp som något ur en annan värld, även mitt inne i staden. Till höger bredde skogen ut sig, och mitt i den, ett tempel, omgivet av japansk lönn i grönt och rött. En klocka ringde, och ljudet ekade genom dalen.
 
-*Hugo virade metalltråd runt några av grenarna som stack ut på ett sätt han inte gillade. Det var tuffare än han trott. Det var svårt att komma åt utan att samtidigt bryta några av de mindre grenarna, och ståltråden skar in i hans händer. Till slut fick han tråden på plats. Direkt efter lyfte han upp trädet en aning och klippte bort några otympliga rötter.*
+*Regnet smattrade mot rutan. Malmö var gråare än vanligt, som om färgerna dragits ur staden. Hugo satt på sängen, försökte meditera. Han följde andningen exakt som boken beskrev. In. Fyra sekunder. Ut. Fyra sekunder. In. Fyra. Ut. Fyra.*
 
-Hugo lade en hand på skylten. Den kändes robust. Tidlös. Konpuko-ji. Hugo log. Gick i riktning som skylten pekade.
+*Det kändes fel.*
 
+*Han justerade rytmen.*
 
+*Det kändes fortfarande fel.*
 
+*Han reste sig, gick bort till skrivbordet och slog upp boken igen. “Zens tre grundprinciper”. Kapitlet om Kensho. Det måste vara minst tjugonde gången han läste det. Han visste redan vad som stod på nästa rad, ändå följde han texten med fingret, långsamt, som om han kunde läsa sig närmare något.
 
+Han tog fram sin anteckningsbok.
 
+“Kensho – att nå första stadiet av upplysning.”
 
+Under skrev han:
 
+1. Daglig zazen – minst 40 min
+2. Fokus på Mu
+3. Eliminera distraktioner
 
+Han lutade sig tillbaka. Det såg rätt ut. Nästan som en plan.
 
+Telefonen började ringa. Mamma. Han visste exakt vad hon skulle fråga. Om Selina. Om hur han mådde. Han lät det ringa. Tog upp telefonen. Lade ner den igen. Vände den upp och ner.
 
+Tittade upp på fotot av Selina på skrivbordet. Ställde det ner med framsidan mot bordet. Tvekade. Ställde upp det igen. Ångrade sig. Lade det ner.
 
+Öppnade datorn.
 
+“Zen retreat Kyoto”
 
+Backspace.
 
+“Best zen temple Kyoto enlightenment”
 
+Enter.
 
+Han scrollade. Klickade. Öppnade fler flikar.
 
- 
+Sakta började han gå ner från berget. Stigen slingrade sig genom skogen. Efter en stund korsades den av en hjort. Hugo stannade. Hjorten stannade. De stod där, stilla, betraktade varandra. Ingen av dem rörde sig. Tiden kändes annorlunda här. Långsammare. Eller kanske bara… närvarande.
 
+*Hugo virade metalltråd runt en gren på bonsaiträdet. Det var svårare än det såg ut. Han försökte böja grenen försiktigt, men tråden skar in i fingrarna. En mindre gren knäcktes nästan när han kom åt den. Han stannade upp, höll andan, som om trädet kunde återhämta sig om han bara inte rörde det.*
+
+*Sedan fortsatte han.*
+
+Han lyfte trädet en aning, tittade på rötterna, tog saxen och klippte bort några av de som stack ut.
+
+Lutade sig tillbaka.
+
+Det såg fortfarande… fel ut.
+
+Han justerade en sten igen. Tryckte till jorden hårdare än nödvändigt.
+
+Ett blad lossnade.
+
+Han stannade upp.
+
+Plockade upp det.
+
+Tryckte tillbaka det, försiktigt, som om det skulle gå att fästa igen.
+
+Hugo tänkte inte.
+
+Han bara stod där.
+
+Till slut hoppade hjorten vidare in i skogen och försvann mellan träden.
+
+Lite längre fram stod skylten han letat efter. En gammal träskylt i ek, med japanska tecken inhuggna i ytan.
+
+Konpuku-ji.
+
+Hugo lade handen mot träet. Det kändes fast. Verkligt. Något som stått där länge innan honom.
+
+Han log.
+
+Och började gå i riktningen skylten pekade.
