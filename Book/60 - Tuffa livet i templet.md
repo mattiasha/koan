@@ -1,11 +1,3 @@
-
-
-------
-
-**Shizen** – Former och material ska kännas spontana och organiska, som om de uppstått av naturen själv.
-
-------
-
 Natten var fortfarande kvar när Hugo väcktes. Ett hårt slag mot en gonggong skar genom rummet och kroppen ryckte till innan han ens hann förstå var han var. För ett ögonblick låg han kvar, tung i kroppen, fast mellan sömn och vakenhet, medan de andra munkarna redan var uppe. De rörde sig tyst men snabbt, som om de följde en rytm han ännu inte kunde höra.
 
 Hugo satte sig upp långsamt. Det kändes som att han precis hade somnat. En hand lades lätt på hans axel. Han tittade upp. En av munkarna log svagt. "Det blir lättare." Hugo nickade, mer av vana än övertygelse, och reste sig.
@@ -70,4 +62,4 @@ När han senare gick över gården kändes kroppen tyngre, som om varje rörelse
 
 En klocka ringde igen.
 
-Och utan att tänka började han röra sig vidare mot nästa uppgift, i samma riktning som de andra.
+Och utan att tänka började han röra sig vidare mot meditationssalen, i samma riktning som de andra.

@@ -1,11 +1,3 @@
-Hugo kom ut från meditationssalen lite efter de andra. Stegen var långsammare, inte avsiktligt, utan som om kroppen inte riktigt hunnit ifatt det som just hänt. Luften utanför var svalare. Klarare. Men det hjälpte inte riktigt.
-
-Han stod kvar en stund vid tröskeln. De andra munkarna hade redan spridit ut sig över gården, gått vidare in i sina uppgifter utan att tveka. Några kastade snabba blickar mot honom, men ingen stannade.
-
-Smärtan i ryggen låg kvar, dov nu, men närvarande. Inte bara som en fysisk känsla, utan som något han inte kunde placera.
-
-Han tog några steg framåt, utan tydlig riktning, bort från salen.
-
 Trädgården bredde ut sig runt honom, men inte den del han först sett. Det här var närmare byggnaden, där trätrallen från meditationssalen mötte marken. Mossan var tunnare här, avbruten av fläckar där jorden syntes igenom. Några stenar låg snett, som om de en gång placerats med omsorg men sedan lämnats. Ett gammalt trästycke stack upp ur marken, sprucket och väderbitet.
 
 Det var fortfarande vackert.
@@ -60,7 +52,7 @@ Sedan hörde han rörelser bakom sig.
 
 Munkarna.
 
-Arbetet hade börjat på riktigt nu.
+De var på väg in i meditationssalen
 
 Han rätade på sig snabbt. "Förlåt, jag borde—"
 
