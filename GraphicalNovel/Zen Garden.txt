@@ -1,0 +1,103 @@
+[[    ZEN GARDEN   ]]
+
+
+
+[[Intro]]
+
+{{INCLUDE: Intro.fountain}}
+
+===
+
+
+[[Hemma i Sverige]]
+
+{{INCLUDE: Hemma i Sverige.fountain}}
+
+===
+
+
+[[Till templet första gången]]
+
+{{INCLUDE: Till templet första gången.fountain}}
+
+===
+
+
+[[Ser tempellivet]]
+
+{{INCLUDE: Ser tempellivet.fountain}}
+
+===
+
+
+[[Första Dokusan]]
+
+{{INCLUDE: Första Dokusan.fountain}}
+
+===
+
+
+[[Första samtal med Jojin]]
+
+{{INCLUDE: Första samtal med Jojin.fountain}}
+
+===
+
+
+[[Första meditationen]]
+
+{{INCLUDE: Första meditationen.fountain}}
+
+===
+
+
+[[Tröstar sig hos Jojin]]
+
+{{INCLUDE: Tröstar sig hos Jojin.fountain}}
+
+===
+
+
+[[En dag i templet]]
+
+{{INCLUDE: En dag i templet.fountain}}
+
+===
+
+
+[[Försöker reparera med Roshi]]
+
+{{INCLUDE: Försöker reparera med Roshi.fountain}}
+
+===
+
+
+[[Roshi ger extra många slag]]
+
+{{INCLUDE: Roshi ger extra många slag.fountain}}
+
+===
+
+
+[[Läser de sju principerna]]
+
+{{INCLUDE: Hugo läser de sju principerna.fountain}}
+
+===
+
+
+
+
+
+[[Roshin stänger av Jojin]]
+
+{{INCLUDE: Roshi stänger av Jojin.fountain}}
+
+===
+
+[[Hugo kommer tillbaka hem]]
+
+{{INCLUDE: Hugo kommer tillbaka hem.fountain}}
+
+===
+
