@@ -8,6 +8,7 @@ FILES=(
 	"20 - Retreat i Sverige.fountain"
 	"30 - Vandrar i Kyotos berg.fountain"
 	"40 - Träffar Jojin för första gången.fountain"
+	"50 - Ser tempellivet.fountain"
 )
 
 cat "${FILES[@]}" > "$OUT"
