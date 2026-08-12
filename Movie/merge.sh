@@ -10,6 +10,7 @@ FILES=(
 	"40 - Träffar Jojin för första gången.fountain"
 	"50 - Ser tempellivet.fountain"
 	"60 - Första dokusan.fountain"
+	"70 - Skickas till trädgård i skam.fountain"
 )
 
 cat "${FILES[@]}" > "$OUT"
