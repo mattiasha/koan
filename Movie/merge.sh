@@ -13,6 +13,7 @@ FILES=(
 	"70 - Skickas till trädgård i skam.fountain"
 	"80 - Tuffa första tiden i templet.fountain"
 	"100 - Jobbar med ego.fountain"
+	"110 - Andra dokusan.fountain"
 )
 
 cat "${FILES[@]}" > "$OUT"
