@@ -15,6 +15,7 @@ FILES=(
 	"100 - Jobbar med ego.fountain"
 	"110 - Andra dokusan.fountain"
 	"120 - Försöker hitta samarbete med Jojin.fountain"
+	"130 - Läser på om Wabi-Sabi.fountain"
 )
 
 cat "${FILES[@]}" > "$OUT"
