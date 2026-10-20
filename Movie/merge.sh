@@ -16,6 +16,11 @@ FILES=(
 	"110 - Andra dokusan.fountain"
 	"120 - Försöker hitta samarbete med Jojin.fountain"
 	"130 - Läser på om Wabi-Sabi.fountain"
+	"135 - Börjar bli god munk.fountain"
+	"140 - Jobbar intellektuellt med Wabi-Sabi.fountain"
+	"151 - Stressade förberedelser inför högtid.fountain"
+	"152 - Klockmunk sitter i trädgård.fountain"
+
 )
 
 cat "${FILES[@]}" > "$OUT"
