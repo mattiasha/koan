@@ -18,9 +18,8 @@ FILES=(
 	"130 - Läser på om Wabi-Sabi.fountain"
 	"135 - Börjar bli god munk.fountain"
 	"140 - Jobbar intellektuellt med Wabi-Sabi.fountain"
-	"151 - Stressade förberedelser inför högtid.fountain"
-	"152 - Klockmunk sitter i trädgård.fountain"
-
+	"150 - Roshi stressad och Hugo hjälper.fountain"
+	"160 - Roshi ser munkar och Jojin i trädgård.fountain"
 )
 
 cat "${FILES[@]}" > "$OUT"
